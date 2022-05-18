@@ -1,8 +1,10 @@
 import tool
 
 
+imginfo=tool.get_date()
+
 with open('README.md', 'w+')as fw:
-    fw.write(tool.get_date()[0]+'\n')
+    fw.write(imginfo[0]+'\n')
     fw.write('|      |      |      |\n')
     fw.write('| :----: | :----: | :----: |\n')
     i = 0
@@ -19,8 +21,8 @@ with open('README.md', 'w+')as fw:
 with open('bing-url.md', 'r+')as fi:
     content = fi.read()        
     fi.seek(0, 0)
-    fi.write(tool.get_date()[1]+'\n\n'+content)
+    fi.write(imginfo[1]+'\n\n'+content)
     # fi.write(tool.get_date()[1])
 
 
-# print()
+# print(imginfo)
