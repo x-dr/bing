@@ -25,12 +25,18 @@ def get_date():
     # date=
 
     # print(date)
-    with open('url.txt','a')as f:
-        f.write(images_url.split("&")[0]+'\n')
-    with open('startdate.txt','a')as f:
-        f.write(startdate+'\n')
-    with open('copyright.txt','a')as f:
-        f.write(copyright+'\n')
+    with open('url.txt',encoding='utf-8') as f:
+        content = f.read()
+        f.seek(0, 0)
+        f.write(images_url.split("&")[0]+'\n'+content)
+    with open('startdate.txt',encoding='utf-8') as f:
+        content = f.read()
+        f.seek(0, 0)
+        f.write(startdate+'\n'+content)
+    with open('copyright.txt',encoding='utf-8') as f:
+        content = f.read()
+        f.seek(0, 0)
+        f.write(copyright+'\n'+content)
     topimg='![{}]({}&w=1000) Today:[{}]({})'.format(title,images_url.split("&")[0],copyright,images_url.split("&")[0])
     img_info='{} | [{}]({})'.format(startdate,copyright,images_url.split("&")[0])
     return topimg,img_info
