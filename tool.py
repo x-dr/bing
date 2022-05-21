@@ -25,15 +25,15 @@ def get_date():
     # date=
 
     # print(date)
-    with open('url.txt',encoding='utf-8') as f:
+    with open('url.txt','r+',encoding='utf-8') as f:
         content = f.read()
         f.seek(0, 0)
         f.write(images_url.split("&")[0]+'\n'+content)
-    with open('startdate.txt',encoding='utf-8') as f:
+    with open('startdate.txt','r+',encoding='utf-8') as f:
         content = f.read()
         f.seek(0, 0)
         f.write(startdate+'\n'+content)
-    with open('copyright.txt',encoding='utf-8') as f:
+    with open('copyright.txt','r+',encoding='utf-8') as f:
         content = f.read()
         f.seek(0, 0)
         f.write(copyright+'\n'+content)
