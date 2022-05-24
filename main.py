@@ -4,7 +4,7 @@ import tool
 imginfo=tool.get_date()
 
 with open('README.md', 'w+')as fw:
-    fw.write(imginfo[0]+'\n')
+    fw.write(imginfo[0]+'\n\n')
     fw.write('|      |      |      |\n')
     fw.write('| :----: | :----: | :----: |\n')
     i = 0
