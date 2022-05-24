@@ -1,3 +1,9 @@
+---
+title: wallpaper
+date: 2022-01-01 19:24:56
+type: 'gallery'
+---
+
 ![An island park for everyone](https://cn.bing.com/th?id=OHR.KornatiNP_EN-US0453245326_UHD.jpg&w=1000) Today:[Kornati National Park, Croatia (© Anton Petrus/Getty Images)](https://cn.bing.com/th?id=OHR.KornatiNP_EN-US0453245326_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
