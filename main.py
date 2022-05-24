@@ -24,5 +24,12 @@ with open('bing-url.md', 'r+')as fi:
     fi.write(imginfo[1]+'\n\n'+content)
     # fi.write(tool.get_date()[1])
 
-
-# print(imginfo)
+with open('wallpaper.md', 'w+')as fw:
+    fw.write("---"+'\n')
+    fw.write("title: wallpaper"+'\n')
+    fw.write("date: 2022-01-01 19:24:56"+'\n')
+    fw.write("type: 'gallery'"+'\n')
+    fw.write("---"+'\n\n')
+    with open('README.md', 'r')as fi:
+        content = fi.read()
+    fw.write(content)
