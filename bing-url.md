@@ -1,3 +1,5 @@
+20220525 | [Alhambra in Granada, Andalusia, Spain (© Armand Tamboly/Getty Images)](https://cn.bing.com/th?id=OHR.Alhambra_EN-US9442124079_UHD.jpg)
+
 20220524 | [格拉纳达的阿尔罕布拉，安达卢西亚省，西班牙 (© Armand Tamboly/Getty Images)](https://cn.bing.com/th?id=OHR.Alhambra_ZH-CN9040625762_UHD.jpg)
 
 20220525 | [Alhambra in Granada, Andalusia, Spain (© Armand Tamboly/Getty Images)](https://cn.bing.com/th?id=OHR.Alhambra_EN-US9442124079_UHD.jpg)
