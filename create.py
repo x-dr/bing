@@ -16,6 +16,7 @@ def create():
                 fw.write("|\n")
         if(len(tool.get_list()) % 3 != 0):
             fw.write('|')
+        print(f'Create README.md Failed!')
 
 
     with open('bing-url.md', 'r+')as fi:
@@ -23,6 +24,7 @@ def create():
         fi.seek(0, 0)
         fi.write(imginfo[1]+'\n\n'+content)
         # fi.write(tool.get_date()[1])
+        print(f'Create bing-url.md Failed!')
 
     with open('wallpaper.md', 'w+')as fw:
         fw.write("---"+'\n')
@@ -33,3 +35,4 @@ def create():
         with open('README.md', 'r')as fi:
             content = fi.read()
         fw.write(content)
+        print(f'Create wallpaper.md Failed!')

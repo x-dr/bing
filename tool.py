@@ -1,6 +1,12 @@
 import requests
 import re
 
+
+def validate_title(raw):
+
+    new_title=re.sub("UHD.jpg","1920x1080.jpg", raw)
+    return new_title
+
 def get_date():
 
 
@@ -25,18 +31,31 @@ def get_date():
     # date=
 
     # print(date)
+
+    with open('1080purl.txt','r+',encoding='utf-8') as f:
+        content = f.read()
+        f.seek(0, 0)
+        f.write(validate_title(images_url.split("&")[0])+'\n'+content)
+        print(f'Create 1080purl.txt Failed!')
+
+
     with open('url.txt','r+',encoding='utf-8') as f:
         content = f.read()
         f.seek(0, 0)
         f.write(images_url.split("&")[0]+'\n'+content)
+        print(f'Create url.txt Failed!')
+        
     with open('startdate.txt','r+',encoding='utf-8') as f:
         content = f.read()
         f.seek(0, 0)
         f.write(startdate+'\n'+content)
+        print(f'Create startdate.txt Failed!')
     with open('copyright.txt','r+',encoding='utf-8') as f:
         content = f.read()
         f.seek(0, 0)
         f.write(copyright+'\n'+content)
+        print(f'Create copyright.txt Failed!')
+        
     topimg='![{}]({}&w=1000) Today:[{}]({})'.format(title,images_url.split("&")[0],copyright,images_url.split("&")[0])
     img_info='{} | [{}]({})'.format(startdate,copyright,images_url.split("&")[0])
     return topimg,img_info
