@@ -1,3 +1,5 @@
+20220529 | [Hyalite Creek in the Custer Gallatin National Forest, Montana (© Jared Lloyd/Getty Images)](https://cn.bing.com/th?id=OHR.HyaliteCreek_EN-US9700334811_UHD.jpg)
+
 20220528 | [Bungle Bungle Range in Purnululu National Park, Australia (© Francesco Riccardo Iacomino/Getty Images)](https://cn.bing.com/th?id=OHR.PurnululuNP_EN-US9646771554_UHD.jpg)
 
 20220527 | [Golden Gate Bridge and Marin Headlands photographed from Golden Gate Overlook in San Francisco, California (© Jeff Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.MarinHeadlands_EN-US9564309974_UHD.jpg)
