@@ -1,3 +1,5 @@
+20220603 | [Cycling across a natural rock arch in the desert near Moab, Utah (© Whit Richardson/Cavan)](https://cn.bing.com/th?id=OHR.MoabCycling_EN-US6614069772_UHD.jpg)
+
 20220602 | [Buckingham Palace in London, England (© Pajor Pawel/Shutterstock)](https://cn.bing.com/th?id=OHR.QueenJubilee_EN-US9964271686_UHD.jpg)
 
 20220601 | [Coral reef in Marovo Lagoon in the Solomon Islands (© WaterFrame/Alamy)](https://cn.bing.com/th?id=OHR.MarovoLagoon_EN-US9916170608_UHD.jpg)
