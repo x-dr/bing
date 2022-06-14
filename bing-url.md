@@ -1,3 +1,5 @@
+20220614 | [The Metropolitan Museum of Art in New York City (© Susanne Pommer/Shutterstock)](https://cn.bing.com/th?id=OHR.MuseumMile_EN-US8035796645_UHD.jpg)
+
 20220613 | [Elephant walking in the Okavango River, Botswana (© Markus Pavlowsky/Getty Images)](https://cn.bing.com/th?id=OHR.OkavangoElephant_EN-US7949357706_UHD.jpg)
 
 20220612 | [Cliffs of the Sierra Ponce and Rio Grande, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)](https://cn.bing.com/th?id=OHR.SierraPonce_EN-US7735077868_UHD.jpg)
