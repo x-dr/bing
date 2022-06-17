@@ -1,3 +1,5 @@
+20220617 | [Balsamroot wildflowers bloom below the Teton Mountains in Grand Teton National Park, Wyoming (© Mike Cavaroc/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.Balsamroot_EN-US8641268598_UHD.jpg)
+
 20220616 | [Seungseon Bridge at Seonam Temple in Jogyesan Provincial Park, South Korea (© Aaron Choi/Getty Images)](https://cn.bing.com/th?id=OHR.SeonamTemple_EN-US8180397216_UHD.jpg)
 
 20220615 | [Great Smoky Mountains National Park, Tennessee (© Tony Barber/Getty Images)](https://cn.bing.com/th?id=OHR.ClingmansDome_EN-US8094094597_UHD.jpg)
