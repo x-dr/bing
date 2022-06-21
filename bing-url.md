@@ -1,3 +1,5 @@
+20220621 | [View of Glastonbury Tor from Walton Hill, Somerset, England (© Guy Edwardes/Minden Pictures)](https://cn.bing.com/th?id=OHR.GlastonburySolstice_EN-US7196057692_UHD.jpg)
+
 20220620 | [Old World swallowtail butterflies on a flower (© Alberto Ghizzi Panizza/Getty Images)](https://cn.bing.com/th?id=OHR.SwallowtailFlower_EN-US6952825144_UHD.jpg)
 
 20220619 | [Southern cassowary father with chicks, Kuranda, Queensland, Australia (© Martin Willis/Minden Pictures)](https://cn.bing.com/th?id=OHR.Cassowary_EN-US8797645265_UHD.jpg)
