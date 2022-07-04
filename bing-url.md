@@ -1,3 +1,5 @@
+20220704 | [Fireworks explode during Independence Day celebrations on July 4, 2021, in Washington, DC (© White House Photo/Alamy)](https://cn.bing.com/th?id=OHR.WHFireworks_EN-US7107173560_UHD.jpg)
+
 20220703 | [Red fox (© Yossi Eshbol/Minden Pictures)](https://cn.bing.com/th?id=OHR.SummerDogs_EN-US7055120050_UHD.jpg)
 
 20220702 | [Aerial view of a road separating two lakes in the Scottish Highlands (© Abstract Aerial Art/Getty Images)](https://cn.bing.com/th?id=OHR.HalfwayDay_EN-US6981774268_UHD.jpg)
