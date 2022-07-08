@@ -1,3 +1,5 @@
+20220708 | [Preveli Gorge with river and palm tree forest, Crete, Greece (© borchee/Getty Images)](https://cn.bing.com/th?id=OHR.PreveliGorge_EN-US7830712096_UHD.jpg)
+
 20220707 | [Heceta Head Light, Florence, Oregon (© Tom Schwabel/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.HecetaHead_EN-US7658704670_UHD.jpg)
 
 20220706 | [Atlantic puffin pair billing, Shetland Islands, Scotland (© Vince Burton/Minden Pictures)](https://cn.bing.com/th?id=OHR.KissingPuffins_EN-US7469101764_UHD.jpg)
