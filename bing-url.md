@@ -1,3 +1,5 @@
+20220711 | [Barcelona, Spain (© SW Photography/Getty Images)](https://cn.bing.com/th?id=OHR.BarcelonaPop_EN-US8033472712_UHD.jpg)
+
 20220710 | [Aerial view of colorful boats in the Mediterranean Sea in Ölüdeniz, Turkey (© den-belitsky/Getty Images)](https://cn.bing.com/th?id=OHR.OludenizTurkey_EN-US7964154843_UHD.jpg)
 
 20220709 | [Dolomite Mountains at night with the Milky Way, Italy (© Carlos Fernandez/Getty Images)](https://cn.bing.com/th?id=OHR.DolomitesMW_EN-US7903776288_UHD.jpg)
