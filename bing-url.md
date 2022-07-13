@@ -1,3 +1,5 @@
+20220713 | [Basalt columns of Giant's Causeway, Northern Ireland (© Olimpio Fantuz/eStock Photo)](https://cn.bing.com/th?id=OHR.BasaltGiants_EN-US8165410401_UHD.jpg)
+
 20220712 | [Bay Marker Lookout, Sydney Olympic Park, Australia (© ai_yoshi/Getty Images)](https://cn.bing.com/th?id=OHR.SpiralHill_EN-US8098037208_UHD.jpg)
 
 20220711 | [Barcelona, Spain (© SW Photography/Getty Images)](https://cn.bing.com/th?id=OHR.BarcelonaPop_EN-US8033472712_UHD.jpg)
