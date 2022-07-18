@@ -1,3 +1,5 @@
+20220718 | [Omijima Island in Kita-Nagato Kaigan Quasi-National Park, Japan (© Sean Pavone Photo/Adobe Stock)](https://cn.bing.com/th?id=OHR.OmijimaIsland_EN-US2811609327_UHD.jpg)
+
 20220717 | [The Wave sandstone formation in Coyote Buttes North, Paria Canyon-Vermilion Cliffs National Monument, Arizona (© Dennis Frates/Alamy)](https://cn.bing.com/th?id=OHR.CoyoteButtes_EN-US2729289736_UHD.jpg)
 
 20220716 | [Goldfinch on a sunflower in McConnells, South Carolina (© Teresa Kopec/Getty Images)](https://cn.bing.com/th?id=OHR.AmericanGoldfinch_EN-US2664017758_UHD.jpg)
