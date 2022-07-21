@@ -1,4 +1,4 @@
-name: Sync Repository gitee
+name: Sync Repository 
 on:
   push:
   #schedule:
@@ -13,7 +13,7 @@ jobs:
       uses: x-dr/SRA@v2
       env:
           # 在 Settings->Secrets配置 GITEE_KEY
-          SSH_KEY: ${{ secrets.GITEE }}
+          SSH_KEY: ${{ secrets.GITEE_KEY }}
       with:
           # 注意替换为你的源仓库地址
           github-repo: "git@github.com:x-dr/bing.git"
