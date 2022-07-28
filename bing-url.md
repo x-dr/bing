@@ -1,3 +1,5 @@
+20220728 | [Longs Peak in Rocky Mountain National Park, Colorado (© Andrew R. Slaton/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LongsPeak_EN-US4189093342_UHD.jpg)
+
 20220727 | [Nabataean tomb in Mada'in Saleh (aka Hegra), Saudi Arabia (© Tuul & Bruno Morandi/Getty Images)](https://cn.bing.com/th?id=OHR.NabateanTomb_EN-US4126304993_UHD.jpg)
 
 20220726 | [Mangrove forest in the Saloum Delta National Park, Senegal (© mariusz_prusaczyk/Getty Images)](https://cn.bing.com/th?id=OHR.MangroveDay_EN-US4051479273_UHD.jpg)
