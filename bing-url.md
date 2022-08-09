@@ -1,3 +1,5 @@
+20220809 | [Cueva de las Manos (Cave of the Hands) in Santa Cruz, Argentina (© Adwo/Alamy)](https://cn.bing.com/th?id=OHR.CuevaManos_EN-US2810052050_UHD.jpg)
+
 20220808 | [Aerial view of the island Pantaleu near Sant Elm, Mallorca, Spain (© Dimitri Weber/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.EsPantaleu_EN-US2555315913_UHD.jpg)
 
 20220807 | [Spring Point Ledge Light in South Portland, Maine (© Haizhan Zheng/Getty Images)](https://cn.bing.com/th?id=OHR.SpringPoint_EN-US2439443308_UHD.jpg)
