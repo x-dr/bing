@@ -1,3 +1,5 @@
+20220810 | [Joshua trees in Joshua Tree National Park, California (© Tim Fitzharris/Minden Pictures)](https://cn.bing.com/th?id=OHR.AnniversaryJTNP_EN-US2914674933_UHD.jpg)
+
 20220809 | [Cueva de las Manos (Cave of the Hands) in Santa Cruz, Argentina (© Adwo/Alamy)](https://cn.bing.com/th?id=OHR.CuevaManos_EN-US2810052050_UHD.jpg)
 
 20220808 | [Aerial view of the island Pantaleu near Sant Elm, Mallorca, Spain (© Dimitri Weber/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.EsPantaleu_EN-US2555315913_UHD.jpg)
