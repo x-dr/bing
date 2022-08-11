@@ -1,3 +1,5 @@
+20220811 | [Mount Tsubakuro near Azumino, Nagano, Japan (© Joshua Hawley/Getty Images)](https://cn.bing.com/th?id=OHR.MtTsubakuro_EN-US2985513957_UHD.jpg)
+
 20220810 | [Joshua trees in Joshua Tree National Park, California (© Tim Fitzharris/Minden Pictures)](https://cn.bing.com/th?id=OHR.AnniversaryJTNP_EN-US2914674933_UHD.jpg)
 
 20220809 | [Cueva de las Manos (Cave of the Hands) in Santa Cruz, Argentina (© Adwo/Alamy)](https://cn.bing.com/th?id=OHR.CuevaManos_EN-US2810052050_UHD.jpg)
