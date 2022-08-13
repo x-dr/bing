@@ -1,3 +1,5 @@
+20220813 | [Boundary Waters Canoe Area Wilderness, Superior National Forest, Minnesota (© Dukas/Universal Images Group via Getty Images)](https://cn.bing.com/th?id=OHR.BoundaryWaters_EN-US1592534087_UHD.jpg)
+
 20220812 | [Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)](https://cn.bing.com/th?id=OHR.AmboseliElephants_EN-US1510486473_UHD.jpg)
 
 20220811 | [Mount Tsubakuro near Azumino, Nagano, Japan (© Joshua Hawley/Getty Images)](https://cn.bing.com/th?id=OHR.MtTsubakuro_EN-US2985513957_UHD.jpg)
