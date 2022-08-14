@@ -1,3 +1,5 @@
+20220814 | [Panther chameleon in Amber Mountain National Park, Madagascar (© Christian Ziegler/Minden Pictures)](https://cn.bing.com/th?id=OHR.PantherChameleon_EN-US2150362477_UHD.jpg)
+
 20220813 | [Boundary Waters Canoe Area Wilderness, Superior National Forest, Minnesota (© Dukas/Universal Images Group via Getty Images)](https://cn.bing.com/th?id=OHR.BoundaryWaters_EN-US1592534087_UHD.jpg)
 
 20220812 | [Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)](https://cn.bing.com/th?id=OHR.AmboseliElephants_EN-US1510486473_UHD.jpg)
