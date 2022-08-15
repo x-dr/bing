@@ -1,3 +1,5 @@
+20220815 | [Chittorgarh Fort, India (© Anand Purohit/Getty Images)](https://cn.bing.com/th?id=OHR.ChittorgarhFort_EN-US2246278299_UHD.jpg)
+
 20220814 | [Panther chameleon in Amber Mountain National Park, Madagascar (© Christian Ziegler/Minden Pictures)](https://cn.bing.com/th?id=OHR.PantherChameleon_EN-US2150362477_UHD.jpg)
 
 20220813 | [Boundary Waters Canoe Area Wilderness, Superior National Forest, Minnesota (© Dukas/Universal Images Group via Getty Images)](https://cn.bing.com/th?id=OHR.BoundaryWaters_EN-US1592534087_UHD.jpg)
