@@ -1,3 +1,5 @@
+20220822 | [A burrowing owl chick and adult in South Florida (© Carlos Carreno/Getty Images)](https://cn.bing.com/th?id=OHR.TenderMoment_EN-US3269942524_UHD.jpg)
+
 20220821 | [Faro de Playa Lago, Costa da Morte, Muxia, Galicia, Spain (© Carlos Fernandez/Getty Images)](https://cn.bing.com/th?id=OHR.CostadaMorte_EN-US3132736041_UHD.jpg)
 
 20220820 | [Beehives in the Muniellos Nature Reserve, Asturias province, Spain (© ABB Photo/Shutterstock)](https://cn.bing.com/th?id=OHR.BearProof_EN-US2982363241_UHD.jpg)
