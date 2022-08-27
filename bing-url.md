@@ -1,3 +1,5 @@
+20220827 | [Boundary Trail in Mount St. Helens National Volcanic Monument, Washington (© Don Geyer/Alamy)](https://cn.bing.com/th?id=OHR.MSHV_EN-US5482864526_UHD.jpg)
+
 20220826 | [Kiteboarders and windsurfers off the Pelješac Peninsula, Croatia (© helivideo/Getty Images)](https://cn.bing.com/th?id=OHR.PeljesacWind_EN-US5380116190_UHD.jpg)
 
 20220825 | [North Cascades National Park, Washington (© Ethan Welty/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.CascadesNP_EN-US3684575794_UHD.jpg)
