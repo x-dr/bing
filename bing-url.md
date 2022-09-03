@@ -1,3 +1,5 @@
+20220903 | [Petronas Twin Towers, Kuala Lumpur, Malaysia (© tampatra/Getty Images)](https://cn.bing.com/th?id=OHR.MalaysiaTwinTowers_EN-US7848703415_UHD.jpg)
+
 20220902 | [Seitan Limania Beach in Crete, Greece (© Georgios Tsichlis/Alamy)](https://cn.bing.com/th?id=OHR.SeitanLimania_EN-US5452823219_UHD.jpg)
 
 20220901 | [Wildlife crossing in Wierden, Netherlands (© Frans Lemmens/Alamy)](https://cn.bing.com/th?id=OHR.WildlifeCrossing_EN-US7691052130_UHD.jpg)
