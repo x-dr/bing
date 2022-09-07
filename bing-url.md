@@ -1,3 +1,5 @@
+20220907 | [Museu do Amanhã (Museum of Tomorrow) in Rio de Janeiro, Brazil (© Nido Huebl/Shutterstock)](https://cn.bing.com/th?id=OHR.MuseudoAmanha_EN-US9576177041_UHD.jpg)
+
 20220906 | [Red squirrel carrying a mushroom (© Michael Quinton/Minden Pictures)](https://cn.bing.com/th?id=OHR.SquirrelMushroom_EN-US8955570535_UHD.jpg)
 
 20220905 | [Labor Day parade in 1934, Gastonia, North Carolina (© Bettmann/Getty Images)](https://cn.bing.com/th?id=OHR.GastoniaParade_EN-US8873564493_UHD.jpg)
