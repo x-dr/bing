@@ -1,3 +1,5 @@
+20220913 | [Great Sand Dunes National Park and Preserve, Colorado (© Y Paudel/Getty Images)](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_UHD.jpg)
+
 20220912 | [Chestnut-eared aracari in the Pantanal region of Brazil (© Ana Gram/Shutterstock)](https://cn.bing.com/th?id=OHR.Aracari_EN-US6920359857_UHD.jpg)
 
 20220911 | [Statue of Liberty seen behind US flags at half-staff for the anniversary of September 11 in 2014, New York City (© Adam Parent/Shutterstock)](https://cn.bing.com/th?id=OHR.SOLHalfStaff_EN-US6710129226_UHD.jpg)
