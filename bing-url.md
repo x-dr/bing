@@ -1,3 +1,5 @@
+20220914 | [Navajo Bridge over the Colorado River at the Glen Canyon National Recreation Area in northern Arizona (© trekandshoot/Alamy)](https://cn.bing.com/th?id=OHR.MarbleCanyon_EN-US7056773172_UHD.jpg)
+
 20220913 | [Great Sand Dunes National Park and Preserve, Colorado (© Y Paudel/Getty Images)](https://cn.bing.com/th?id=OHR.GSDNPest_EN-US6985335988_UHD.jpg)
 
 20220912 | [Chestnut-eared aracari in the Pantanal region of Brazil (© Ana Gram/Shutterstock)](https://cn.bing.com/th?id=OHR.Aracari_EN-US6920359857_UHD.jpg)
