@@ -1,3 +1,5 @@
+20220919 | [Floral tributes left in London, England, following the death of Queen Elizabeth II (© Maja Smiejkowska/Reuters)](https://cn.bing.com/th?id=OHR.QueenFuneral_EN-US7710269016_UHD.jpg)
+
 20220918 | [Footpath in the Arashiyama Bamboo Grove, Kyoto, Japan (© Razvan Ciuca/Getty Images)](https://cn.bing.com/th?id=OHR.ArashiyamaBamboo_EN-US7569665443_UHD.jpg)
 
 20220917 | [Oktoberfest visitors in Munich, Germany (© Karl-Josef Hildenbrand/Getty Images)](https://cn.bing.com/th?id=OHR.Wellenflug_EN-US7380614960_UHD.jpg)
