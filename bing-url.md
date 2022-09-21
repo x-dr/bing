@@ -1,3 +1,5 @@
+20220921 | ['Peace Doves' by artist Peter Walker in Liverpool Cathedral, Liverpool, England (© PAUL ELLIS/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.PWPeaceDoves_EN-US7797522376_UHD.jpg)
+
 20220920 | [Raft of sea otters in Sitka Sound, near Sitka, Alaska (© Robert Harding/Offset/Shutterstock)](https://cn.bing.com/th?id=OHR.SitkaOtters_EN-US7714053956_UHD.jpg)
 
 20220919 | [Floral tributes left in London, England, following the death of Queen Elizabeth II (© Maja Smiejkowska/Reuters)](https://cn.bing.com/th?id=OHR.QueenFuneral_EN-US7710269016_UHD.jpg)
