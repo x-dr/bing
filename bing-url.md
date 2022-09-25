@@ -1,3 +1,5 @@
+20220925 | [Aerial view of the Amazon River in Brazil (© Curioso.Photography/Shutterstock)](https://cn.bing.com/th?id=OHR.AmazonMangroves_EN-US7068770726_UHD.jpg)
+
 20220924 | [Milky Way over Acadia National Park, Maine (© Harry Collins/Getty Images)](https://cn.bing.com/th?id=OHR.DarkSkyAcadia_EN-US6966527964_UHD.jpg)
 
 20220923 | [Golden jellyfish in Jellyfish Lake on the island of Eil Malk, Palau (© Nature Picture Library/Alamy)](https://cn.bing.com/th?id=OHR.GoldenJellyfish_EN-US6743816471_UHD.jpg)
