@@ -1,3 +1,5 @@
+20220928 | [A. M. Foster Bridge in Cabot, Vermont (© Alan Majchrowicz/Getty Images)](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_UHD.jpg)
+
 20220927 | [Upper Geyser Basin in Yellowstone National Park, Wyoming (© Ray Urner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.YellowstoneUGB_EN-US7573964019_UHD.jpg)
 
 20220926 | [Caribou crossing the Susitna River during autumn, Alaska (© Tim Plowden/Alamy)](https://cn.bing.com/th?id=OHR.SusitnaRiver_EN-US7154675950_UHD.jpg)
