@@ -1,3 +1,5 @@
+20220930 | [Southern right whale diving in the Golfo Nuevo near the Valdes Peninsula, Argentina (© Gabriel Rojo/Minden Pictures)](https://cn.bing.com/th?id=OHR.EubalaenaAustralis_EN-US7949014397_UHD.jpg)
+
 20220929 | [Infini-D, modeled during the World of WearableArt Awards in 2019 in Wellington, New Zealand (© Hagen Hopkins/Getty Images for World of WearableArt)](https://cn.bing.com/th?id=OHR.InfiniD_EN-US7855471603_UHD.jpg)
 
 20220928 | [A. M. Foster Bridge in Cabot, Vermont (© Alan Majchrowicz/Getty Images)](https://cn.bing.com/th?id=OHR.FosterCoveredBridge_EN-US7763700078_UHD.jpg)
