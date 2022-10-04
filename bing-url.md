@@ -1,3 +1,5 @@
+20221004 | [Cosmic Cliffs in the Carina Nebula (© NASA, ESA, CSA, and STScI)](https://cn.bing.com/th?id=OHR.CosmicCliffs_EN-US8727581889_UHD.jpg)
+
 20221003 | [The Port House, designed by Zaha Hadid Architects, Antwerp, Belgium (© Dmitry Rukhlenko/Alamy)](https://cn.bing.com/th?id=OHR.Porthuis_EN-US8462686696_UHD.jpg)
 
 20221002 | [Hot air balloons at the Albuquerque International Balloon Fiesta in Albuquerque, New Mexico (© gmeland/Shutterstock)](https://cn.bing.com/th?id=OHR.LotsOBalloons_EN-US8236203600_UHD.jpg)
