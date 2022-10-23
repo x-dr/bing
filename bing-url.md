@@ -1,3 +1,5 @@
+20221023 | [Mute swan in Valkenhorst Nature Reserve, near Valkenswaard, the Netherlands (© David Pattyn/Minden Pictures)](https://cn.bing.com/th?id=OHR.Knobbelzwaan_EN-US4809716001_UHD.jpg)
+
 20221022 | [Karst mountains in Guilin and Lijiang River National Park, China (© Sean Pavone/Alamy)](https://cn.bing.com/th?id=OHR.KarstMountains_EN-US4446699673_UHD.jpg)
 
 20221021 | [Cypress trees in autumn, Georgia (© Chris Moore/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.GeorgiaCypress_EN-US2966839861_UHD.jpg)
