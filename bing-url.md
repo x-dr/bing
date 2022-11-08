@@ -1,3 +1,5 @@
+20221108 | [Sky lanterns take flight during the Yi Peng Festival in Chiang Mai, Thailand (© Suttipong Sutiratanachai/Getty Images)](https://cn.bing.com/th?id=OHR.YiPeng_EN-US0467115147_UHD.jpg)
+
 20221107 | [Lunar eclipse above Mount Crested Butte, Colorado (© Mengzhonghua Photography/Getty Images)](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_EN-US0408360129_UHD.jpg)
 
 20221106 | [Runners in the 1990 New York City Marathon crossing the Verrazzano-Narrows Bridge (© David Madison/Getty Images)](https://cn.bing.com/th?id=OHR.MarathonSunday_EN-US0342685769_UHD.jpg)
