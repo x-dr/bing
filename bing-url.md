@@ -1,3 +1,5 @@
+20221109 | [European hedgehog in Sussex, England (© Jules Cox/Minden Pictures)](https://cn.bing.com/th?id=OHR.HedgehogNest_EN-US0590169065_UHD.jpg)
+
 20221108 | [Sky lanterns take flight during the Yi Peng Festival in Chiang Mai, Thailand (© Suttipong Sutiratanachai/Getty Images)](https://cn.bing.com/th?id=OHR.YiPeng_EN-US0467115147_UHD.jpg)
 
 20221107 | [Lunar eclipse above Mount Crested Butte, Colorado (© Mengzhonghua Photography/Getty Images)](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_EN-US0408360129_UHD.jpg)
