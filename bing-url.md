@@ -1,3 +1,5 @@
+20221122 | [Red fox in Amsterdamse Waterleidingduinen Nature Reserve, Netherlands (© Edwin Giesbers/Minden Pictures)](https://cn.bing.com/th?id=OHR.Waterleidingduinen_EN-US9090200846_UHD.jpg)
+
 20221121 | [Ahmad Bin Ali Stadium in Doha, Qatar (© Qatar 2022/Supreme Committee via Getty Images)](https://cn.bing.com/th?id=OHR.FIFA2022_EN-US9006895256_UHD.jpg)
 
 20221120 | ['World in Progress II,' a land art painting by Saype, United Nations Headquarters, New York City (© Valentin Flauraud/Shutterstock)](https://cn.bing.com/th?id=OHR.LandartPainting_EN-US8910164390_UHD.jpg)
