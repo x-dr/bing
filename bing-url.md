@@ -1,3 +1,5 @@
+20221128 | [Mars (© NASA/Alamy)](https://cn.bing.com/th?id=OHR.RedPlanetDay_EN-US9693219784_UHD.jpg)
+
 20221127 | [Cecropia leaf atop lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)](https://cn.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg)
 
 20221126 | [An olive tree in front of the Temple of Concordia on the island of Sicily, Italy (© Alfio Finocchiaro/Shutterstock)](https://cn.bing.com/th?id=OHR.OliveTreeDay_EN-US9460125670_UHD.jpg)
