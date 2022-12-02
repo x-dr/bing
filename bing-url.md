@@ -1,3 +1,5 @@
+20221202 | [Tlikakila River Delta in Lake Clark National Park, Alaska (© Dawn Wilson Photography/Getty Images)](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg)
+
 20221201 | [Paradise Harbour, Antarctica (© SinghaphanAllB/Getty Images)](https://cn.bing.com/th?id=OHR.AntarcticaDay_EN-US9921573438_UHD.jpg)
 
 20221130 | [The Old Town of Rovinj, Croatia (© trabantos/Shutterstock)](https://cn.bing.com/th?id=OHR.RovinjCroatia_EN-US9834093615_UHD.jpg)
