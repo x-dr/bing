@@ -1,3 +1,5 @@
+20221204 | [Elephants near Mount Kilimanjaro, Amboseli National Park, Kenya (© Diana Robinson Photography/Getty Images)](https://cn.bing.com/th?id=OHR.KilimanjaroElephants_EN-US1249382486_UHD.jpg)
+
 20221203 | [Miami Beach, Florida (© Matteo Colombo/Getty Images)](https://cn.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_UHD.jpg)
 
 20221202 | [Tlikakila River Delta in Lake Clark National Park, Alaska (© Dawn Wilson Photography/Getty Images)](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg)
