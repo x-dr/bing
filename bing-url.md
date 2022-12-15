@@ -1,3 +1,5 @@
+20221215 | [Borovets, Bulgaria (© Grigor Ivanov/Cavan Images)](https://cn.bing.com/th?id=OHR.Borovets_EN-US3037571286_UHD.jpg)
+
 20221214 | [Great horned owls and a gilded flicker on a saguaro cactus in the Sonoran Desert, Arizona (© John Cancalosi/Minden Pictures)](https://cn.bing.com/th?id=OHR.GildedFlicker_EN-US2911251361_UHD.jpg)
 
 20221213 | [Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)](https://cn.bing.com/th?id=OHR.InstagramHallstatt_EN-US2608371794_UHD.jpg)
