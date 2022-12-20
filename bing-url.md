@@ -1,3 +1,5 @@
+20221220 | [Christmas market at Belvedere in Vienna, Austria (© Diyana Dimitrova/Alamy)](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg)
+
 20221219 | [A northern cardinal perched in a common winterberry bush in Marion County, Illinois (© Richard and Susan Day/Danita Delimont)](https://cn.bing.com/th?id=OHR.WinterberryBush_EN-US5722169778_UHD.jpg)
 
 20221218 | [South Beach in Miami Beach, Florida (© Claudia Uripos/eStock Photo)](https://cn.bing.com/th?id=OHR.SouthBeach_EN-US5638482869_UHD.jpg)
