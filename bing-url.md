@@ -1,3 +1,5 @@
+20221222 | [Christmas tree of the Galeries Lafayette in Paris, France (© Geoffroy Van der Hasselt/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_UHD.jpg)
+
 20221221 | [Sun halo over Lake Antermoia in the Dolomite Mountains of Italy (© Walter Donega/Getty Images)](https://cn.bing.com/th?id=OHR.SolarHalo_EN-US5994527098_UHD.jpg)
 
 20221220 | [Christmas market at Belvedere in Vienna, Austria (© Diyana Dimitrova/Alamy)](https://cn.bing.com/th?id=OHR.PalaceBelvedere_EN-US5817237970_UHD.jpg)
