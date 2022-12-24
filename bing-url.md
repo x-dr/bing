@@ -1,3 +1,5 @@
+20221224 | [Amalga Harbor, Alaska (© Mark Kelley/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AmalgaTree_EN-US6271369167_UHD.jpg)
+
 20221223 | [Gentoo penguins in Antarctica (© Nature Picture Library/Alamy)](https://cn.bing.com/th?id=OHR.GentooGrievances_EN-US6133793039_UHD.jpg)
 
 20221222 | [Christmas tree of the Galeries Lafayette in Paris, France (© Geoffroy Van der Hasselt/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-US9731347729_UHD.jpg)
