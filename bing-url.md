@@ -1,3 +1,5 @@
+20221226 | [Beverley Westwood Common, East Yorkshire, England (© Les Gibbon/Alamy)](https://cn.bing.com/th?id=OHR.BeverleyWestwood_EN-US6464100653_UHD.jpg)
+
 20221225 | [Miniature holiday scene in Strasbourg, France (© Kavalenkava Volha/Alamy)](https://cn.bing.com/th?id=OHR.ChristmasSouvenir_EN-US6355954352_UHD.jpg)
 
 20221224 | [Amalga Harbor, Alaska (© Mark Kelley/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AmalgaTree_EN-US6271369167_UHD.jpg)
