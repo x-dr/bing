@@ -1,3 +1,5 @@
+20221227 | [Blue Lagoon, Grindavík, Iceland (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.BlueLagoon_EN-US6577382520_UHD.jpg)
+
 20221226 | [Beverley Westwood Common, East Yorkshire, England (© Les Gibbon/Alamy)](https://cn.bing.com/th?id=OHR.BeverleyWestwood_EN-US6464100653_UHD.jpg)
 
 20221225 | [Miniature holiday scene in Strasbourg, France (© Kavalenkava Volha/Alamy)](https://cn.bing.com/th?id=OHR.ChristmasSouvenir_EN-US6355954352_UHD.jpg)
