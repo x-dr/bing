@@ -1,3 +1,5 @@
+20230101 | [Polar bear in Svalbard, Norway (© Dennis Stogsdill/Getty Images)](https://cn.bing.com/th?id=OHR.NorwayNYD_EN-US3880728634_UHD.jpg)
+
 20221231 | [New Year's Eve fireworks, Sydney Harbour Bridge, Australia (© Wendell Teodoro/Getty Images)](https://cn.bing.com/th?id=OHR.SydneyNYE_EN-US3807524923_UHD.jpg)
 
 20221230 | [Rock formations in the White Desert, Egypt (© Anton Petrus/Getty Images)](https://cn.bing.com/th?id=OHR.ChalkRock_EN-US3353441410_UHD.jpg)
