@@ -1,3 +1,5 @@
+20230110 | [Hummock ice on Lake Peipus in Estonia (© Sven Zacek/Minden Pictures)](https://cn.bing.com/th?id=OHR.HummockIce_EN-US4606231645_UHD.jpg)
+
 20230109 | [Bison in Wind Cave National Park, South Dakota (© Charlie Summers/Minden Pictures)](https://cn.bing.com/th?id=OHR.BisonWindCave_EN-US4537340482_UHD.jpg)
 
 20230108 | [Breckenridge, Colorado (© Sean Pavone/Shutterstock)](https://cn.bing.com/th?id=OHR.Breckenridge_EN-US4460042968_UHD.jpg)
