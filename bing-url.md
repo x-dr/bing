@@ -1,3 +1,5 @@
+20230113 | [Giant kelp in the Channel Islands National Marine Sanctuary, California (© Brandon Cole Images/Shutterstock)](https://cn.bing.com/th?id=OHR.Pneumatocysts_EN-US1065729036_UHD.jpg)
+
 20230112 | [Rumelihisarı on the Bosporus Strait at Istanbul, Türkiye (© Drone in Wonderland/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.RumeliHisari_EN-US4800002879_UHD.jpg)
 
 20230111 | ['Umschreibung,' a sculpture by artist Olafur Eliasson in Munich, Germany (© Manfred Bail/Alamy)](https://cn.bing.com/th?id=OHR.Umschreibung_EN-US4693850900_UHD.jpg)
