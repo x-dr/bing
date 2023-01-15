@@ -1,3 +1,5 @@
+20230115 | [Aura River in Turku, Finland (© Jarmo Piironen/Alamy)](https://cn.bing.com/th?id=OHR.Turku_EN-US1258814703_UHD.jpg)
+
 20230114 | [Domestic donkey feeding on cherry twigs (© Juniors Bildarchiv GmbH/Alamy)](https://cn.bing.com/th?id=OHR.DonkeyFeast_EN-US1153850805_UHD.jpg)
 
 20230113 | [Giant kelp in the Channel Islands National Marine Sanctuary, California (© Brandon Cole Images/Shutterstock)](https://cn.bing.com/th?id=OHR.Pneumatocysts_EN-US1065729036_UHD.jpg)
