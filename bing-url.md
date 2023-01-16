@@ -1,3 +1,5 @@
+20230116 | [Inscription Wall at the Martin Luther King Jr. Memorial in Washington, DC (© Ken Howard/Alamy)](https://cn.bing.com/th?id=OHR.InscriptionWall_EN-US1392173431_UHD.jpg)
+
 20230115 | [Aura River in Turku, Finland (© Jarmo Piironen/Alamy)](https://cn.bing.com/th?id=OHR.Turku_EN-US1258814703_UHD.jpg)
 
 20230114 | [Domestic donkey feeding on cherry twigs (© Juniors Bildarchiv GmbH/Alamy)](https://cn.bing.com/th?id=OHR.DonkeyFeast_EN-US1153850805_UHD.jpg)
