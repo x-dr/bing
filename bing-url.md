@@ -1,3 +1,5 @@
+20230124 | [Colle Santa Lucia in the Dolomites, Italy (© mauritius images GmbH/Alamy)](https://cn.bing.com/th?id=OHR.ColleSantaLucia_EN-US2362622808_UHD.jpg)
+
 20230123 | [Moai statues on Easter Island, Chile (© Karine Aigner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SunriseMoai_EN-US2278287529_UHD.jpg)
 
 20230122 | [Mountain hare in Derbyshire, England (© Ben Hall/Minden Pictures)](https://cn.bing.com/th?id=OHR.YearRabbit_EN-US2153925391_UHD.jpg)
