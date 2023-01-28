@@ -1,3 +1,5 @@
+20230128 | [Blue-green waters around the Bahamas as seen from the International Space Station (© NASA)](https://cn.bing.com/th?id=OHR.BlueBahamas_EN-US2634514272_UHD.jpg)
+
 20230127 | [Red mangrove tree seedlings in Guanahacabibes National Park, Cuba (© Claudio Contreras/Minden Pictures)](https://cn.bing.com/th?id=OHR.RedMangrove_EN-US2559915803_UHD.jpg)
 
 20230126 | [Heaven's Gate Cave in Tianmen Mountain National Park, China (© Shane P. White/Minden Pictures)](https://cn.bing.com/th?id=OHR.HighArchChina_EN-US3519227219_UHD.jpg)
