@@ -1,3 +1,5 @@
+20230204 | [Rosa Parks sits in the front of a bus in Montgomery, Alabama, Dec 21, 1956 (© Bettmann Archive/Getty Images)](https://cn.bing.com/th?id=OHR.RosaParksBus_EN-US3109740887_UHD.jpg)
+
 20230203 | [Château Frontenac, Quebec City, Canada (© Romiana Lee/Shutterstock)](https://cn.bing.com/th?id=OHR.QuebecFrontenac_EN-US3034032069_UHD.jpg)
 
 20230201 | ['Testament: The Little Rock Nine Monument,' Little Rock, Arkansas (© Rex Lisman/Getty Images)](https://cn.bing.com/th?id=OHR.LittleRockNine_EN-US4940477720_UHD.jpg)
