@@ -1,3 +1,5 @@
+20230211 | [The Milky Way over Zabriskie Point, Death Valley, California (© Matt Anderson Photography/Getty Images)](https://cn.bing.com/th?id=OHR.DarkSkiesDV_EN-US5129041284_UHD.jpg)
+
 20230210 | [Ancient theater of Epidaurus in Argolis province, Greece (© George Pachantouris/Getty Images)](https://cn.bing.com/th?id=OHR.EpidaurusGreece_EN-US0957261511_UHD.jpg)
 
 20230209 | [Lower Antelope Canyon near Page, Arizona (© AZCat/Getty Images)](https://cn.bing.com/th?id=OHR.LowerAntelopeAZ_EN-US3547494170_UHD.jpg)
