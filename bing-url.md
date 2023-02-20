@@ -1,3 +1,5 @@
+20230220 | [Washington Monument and Capitol Building on the National Mall, Washington, DC (© AevanStock/Shutterstock)](https://cn.bing.com/th?id=OHR.PresDayDC_EN-US2054662773_UHD.jpg)
+
 20230219 | [Humpback whales, Maui, Hawaii (© Flip Nicklin/Minden Pictures)](https://cn.bing.com/th?id=OHR.MauiWhale_EN-US1928366389_UHD.jpg)
 
 20230218 | [Eben Ice Caves, Upper Peninsula, Michigan (© Dean Pennala/Shutterstock)](https://cn.bing.com/th?id=OHR.EbenIceCave_EN-US1839710567_UHD.jpg)
