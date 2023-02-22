@@ -1,3 +1,5 @@
+20230222 | [Freedom Sunday rally, Soldier Field, Chicago, Illinois, July 10, 1966 (© Bettmann/Getty Images)](https://cn.bing.com/th?id=OHR.FreedomRallyChi_EN-US2565810173_UHD.jpg)
+
 20230221 | [French Quarter, New Orleans, Louisiana (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.MardiGrasNOLA_EN-US2138635038_UHD.jpg)
 
 20230220 | [Washington Monument and Capitol Building on the National Mall, Washington, DC (© AevanStock/Shutterstock)](https://cn.bing.com/th?id=OHR.PresDayDC_EN-US2054662773_UHD.jpg)
