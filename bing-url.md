@@ -1,3 +1,5 @@
+20230307 | [Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)](https://cn.bing.com/th?id=OHR.YuanyangChina_EN-US0997293657_UHD.jpg)
+
 20230306 | [Icelandic horses standing in a field, Iceland (© Rodrigo Lourezini/Shutterstock)](https://cn.bing.com/th?id=OHR.IcelandHorses_EN-US0725710929_UHD.jpg)
 
 20230305 | [Cherry trees in full bloom near the Imperial Palace with Tokyo Tower in the background, Tokyo, Japan (© Jon Arnold/Danita Delimont)](https://cn.bing.com/th?id=OHR.TokyoMoat_EN-US9901957262_UHD.jpg)
