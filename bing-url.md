@@ -1,3 +1,5 @@
+20230327 | [New York City skyline in fog (© Orbon Alija/Getty Images)](https://cn.bing.com/th?id=OHR.NYCClouds_EN-US7251713390_UHD.jpg)
+
 20230326 | [Wildflowers in Anza-Borrego Desert State Park, California (© Ron and Patty Thomas/Getty Images)](https://cn.bing.com/th?id=OHR.WildAnza_EN-US9575120232_UHD.jpg)
 
 20230325 | [Cecil Brewer Staircase, the Heal's Building, London, England (© Yiran An/Getty Images)](https://cn.bing.com/th?id=OHR.CecilBrewerStaircase_EN-US7912658969_UHD.jpg)
