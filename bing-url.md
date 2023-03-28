@@ -1,3 +1,5 @@
+20230328 | [Milky Way above the Tre Cime di Lavaredo, South Tyrol, Italy (© Juan Romero/Cavan Images)](https://cn.bing.com/th?id=OHR.MWDolomites_EN-US2413806289_UHD.jpg)
+
 20230327 | [New York City skyline in fog (© Orbon Alija/Getty Images)](https://cn.bing.com/th?id=OHR.NYCClouds_EN-US7251713390_UHD.jpg)
 
 20230326 | [Wildflowers in Anza-Borrego Desert State Park, California (© Ron and Patty Thomas/Getty Images)](https://cn.bing.com/th?id=OHR.WildAnza_EN-US9575120232_UHD.jpg)
