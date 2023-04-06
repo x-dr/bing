@@ -1,3 +1,5 @@
+20230406 | [Moon rising, Tucson, Arizona (© Tim Murphy/Shutterstock)](https://cn.bing.com/th?id=OHR.ArizonaPinkMoon_EN-US5941531826_UHD.jpg)
+
 20230405 | [Black grouse males in Kuusamo, Finland (© Markus Varesvuo/Minden Pictures)](https://cn.bing.com/th?id=OHR.BlackGrouseLekking_EN-US3235220681_UHD.jpg)
 
 20230404 | [Roman bridge, Córdoba, Spain (© Jeremy Woodhouse/Getty Images)](https://cn.bing.com/th?id=OHR.RomanBridge_EN-US4101165681_UHD.jpg)
