@@ -1,3 +1,5 @@
+20230407 | [Baby Eurasian beavers, Finland (© Danny Green/Minden Pictures)](https://cn.bing.com/th?id=OHR.KitsAspen_EN-US6734104933_UHD.jpg)
+
 20230406 | [Moon rising, Tucson, Arizona (© Tim Murphy/Shutterstock)](https://cn.bing.com/th?id=OHR.ArizonaPinkMoon_EN-US5941531826_UHD.jpg)
 
 20230405 | [Black grouse males in Kuusamo, Finland (© Markus Varesvuo/Minden Pictures)](https://cn.bing.com/th?id=OHR.BlackGrouseLekking_EN-US3235220681_UHD.jpg)
