@@ -1,3 +1,5 @@
+20230410 | [Elephant family in Amboseli National Park, Kenya (© Diana Robinson/Getty Images)](https://cn.bing.com/th?id=OHR.ElephantTwins_EN-US2939253051_UHD.jpg)
+
 20230409 | [Lithuanian Easter eggs (© fotomem/Getty Images)](https://cn.bing.com/th?id=OHR.LithuanianEggs_EN-US5086451033_UHD.jpg)
 
 20230408 | [The Giant's Causeway, County Antrim, Northern Ireland (© Dieter Meyrl/Getty Images)](https://cn.bing.com/th?id=OHR.NIrelandGiants_EN-US3269727738_UHD.jpg)
