@@ -1,3 +1,5 @@
+20230413 | [Moss pink displays at Hitsujiyama Park, Saitama Prefecture, Japan (© Takashi Images/Shutterstock)](https://cn.bing.com/th?id=OHR.PhloxSubulata_EN-US0635247129_UHD.jpg)
+
 20230412 | [Earth seen from the International Space Station (© Tim Peake/ESA/NASA via Getty Images)](https://cn.bing.com/th?id=OHR.EuropeFromISS_EN-US3248706956_UHD.jpg)
 
 20230411 | [Mossy Grotto Falls, Columbia River Gorge, Oregon (© Chase Dekker Wild-Life Images/Getty Images)](https://cn.bing.com/th?id=OHR.MossyGrottoFalls_EN-US5828454161_UHD.jpg)
