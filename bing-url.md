@@ -1,3 +1,5 @@
+20230423 | [Stuttgart Public Library, Germany (© Axel Brunst/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.StuttgartPublicLibrary_EN-US3925069856_UHD.jpg)
+
 20230422 | [Island fox in Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.EarthDayFox_EN-US3922955169_UHD.jpg)
 
 20230421 | [Procida, Italy (© Sean Pavone/Shutterstock)](https://cn.bing.com/th?id=OHR.ProcidaItaly_EN-US6282924427_UHD.jpg)
