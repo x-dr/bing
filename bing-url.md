@@ -1,3 +1,5 @@
+20230424 | [Old underground cellar, Bavaria, Germany (© Andreas Zerndl/Getty Images)](https://cn.bing.com/th?id=OHR.FranconianWineCellar_EN-US3287515626_UHD.jpg)
+
 20230423 | [Stuttgart Public Library, Germany (© Axel Brunst/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.StuttgartPublicLibrary_EN-US3925069856_UHD.jpg)
 
 20230422 | [Island fox in Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.EarthDayFox_EN-US3922955169_UHD.jpg)
