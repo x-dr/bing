@@ -1,3 +1,5 @@
+20230425 | [Adélie penguins in Antarctica (© David Merron Photography/Getty Images)](https://cn.bing.com/th?id=OHR.AdelieWPD_EN-US5175747404_UHD.jpg)
+
 20230424 | [Old underground cellar, Bavaria, Germany (© Andreas Zerndl/Getty Images)](https://cn.bing.com/th?id=OHR.FranconianWineCellar_EN-US3287515626_UHD.jpg)
 
 20230423 | [Stuttgart Public Library, Germany (© Axel Brunst/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.StuttgartPublicLibrary_EN-US3925069856_UHD.jpg)
