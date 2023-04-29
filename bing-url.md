@@ -1,3 +1,5 @@
+20230429 | [Milky Way over Joshua Tree National Park, California (© Schroptschop/Getty Images)](https://cn.bing.com/th?id=OHR.JTNPMilkyWay_EN-US8982229546_UHD.jpg)
+
 20230428 | [Mariposa Grove of Giant Sequoias in Yosemite National Park, California (© Orbon Alija/Getty Images)](https://cn.bing.com/th?id=OHR.MariposaGrove_EN-US0790407793_UHD.jpg)
 
 20230427 | [South Padre Island, Texas (© Jeff R Clow/Getty Images)](https://cn.bing.com/th?id=OHR.SouthPadre_EN-US8601972598_UHD.jpg)
