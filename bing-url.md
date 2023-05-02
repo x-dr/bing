@@ -1,3 +1,5 @@
+20230502 | [Jöriseen lakes in the Silvretta Alps, Switzerland (© Florin Baumann/Getty Images)](https://cn.bing.com/th?id=OHR.KlostersSerneus_EN-US9360254697_UHD.jpg)
+
 20230501 | [Korean Bell of Friendship, Los Angeles (© Carlos Marin/Getty Images)](https://cn.bing.com/th?id=OHR.KoreanBell_EN-US9211069806_UHD.jpg)
 
 20230430 | [Preservation Hall, New Orleans, Louisiana (© Cosmo Condina North America/Alamy)](https://cn.bing.com/th?id=OHR.ExteriorPreservationHall_EN-US9095698933_UHD.jpg)
