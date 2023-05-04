@@ -1,3 +1,5 @@
+20230504 | [Mayan ruins in Tikal, Guatemala (© THP Creative/Getty Images)](https://cn.bing.com/th?id=OHR.RebelBase_EN-US9162228478_UHD.jpg)
+
 20230503 | [Wildebeests in the Maasai Mara National Reserve, Kenya (© Matt Polski/Getty Images)](https://cn.bing.com/th?id=OHR.ThreeWildebeest_EN-US9446203427_UHD.jpg)
 
 20230502 | [Jöriseen lakes in the Silvretta Alps, Switzerland (© Florin Baumann/Getty Images)](https://cn.bing.com/th?id=OHR.KlostersSerneus_EN-US9360254697_UHD.jpg)
