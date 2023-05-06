@@ -1,3 +1,5 @@
+20230506 | [Royal azaleas in bloom on Hwangmaesan Mountain, South Korea (© Stock for you/Shutterstock)](https://cn.bing.com/th?id=OHR.HwangmaesanAzaleas_EN-US0649441292_UHD.jpg)
+
 20230505 | [Church of Nuestra Señora de los Remedios and Popocatépetl, Puebla, Mexico (© Radius Images/Shutterstock)](https://cn.bing.com/th?id=OHR.Popocatepetl_EN-US0582960818_UHD.jpg)
 
 20230504 | [Mayan ruins in Tikal, Guatemala (© THP Creative/Getty Images)](https://cn.bing.com/th?id=OHR.RebelBase_EN-US9162228478_UHD.jpg)
