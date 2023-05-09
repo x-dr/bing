@@ -1,3 +1,5 @@
+20230509 | [Poenari Castle on Mount Cetatea, Făgăraș Mountains, Romania (© porojnicu/Getty Images)](https://cn.bing.com/th?id=OHR.MountCetatea_EN-US0862689024_UHD.jpg)
+
 20230508 | [Delicate Arch, Arches National Park, Utah (© Mark Brodkin Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TheChaps_EN-US0810025310_UHD.jpg)
 
 20230507 | [Gray seal pup, Lundy Island, England (© Henley Spiers/Minden Pictures)](https://cn.bing.com/th?id=OHR.SealLaughing_EN-US0742497806_UHD.jpg)
