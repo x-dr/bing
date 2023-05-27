@@ -1,3 +1,5 @@
+20230527 | [Quiver trees in Namibia (© Fotofeeling/DEEPOL by plainpicture)](https://cn.bing.com/th?id=OHR.AloeDichotomum_EN-US4149828212_UHD.jpg)
+
 20230526 | [Wat Sri Sawai in Sukhothai Historical Park, Thailand (© Casper1774 Studio/Shutterstock)](https://cn.bing.com/th?id=OHR.WatSriSawai_EN-US3779091241_UHD.jpg)
 
 20230525 | [Saksun, Faroe Islands, Denmark (© miroslav_1/Getty Images)](https://cn.bing.com/th?id=OHR.SaksunFaroe_EN-US3384967997_UHD.jpg)
