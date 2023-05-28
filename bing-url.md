@@ -1,3 +1,5 @@
+20230528 | [Tegallalang terrace farms in Ubud, Bali, Indonesia (© Cavan Images/Adobe Stock)](https://cn.bing.com/th?id=OHR.TegallalangTerrace_EN-US4296943902_UHD.jpg)
+
 20230527 | [Quiver trees in Namibia (© Fotofeeling/DEEPOL by plainpicture)](https://cn.bing.com/th?id=OHR.AloeDichotomum_EN-US4149828212_UHD.jpg)
 
 20230526 | [Wat Sri Sawai in Sukhothai Historical Park, Thailand (© Casper1774 Studio/Shutterstock)](https://cn.bing.com/th?id=OHR.WatSriSawai_EN-US3779091241_UHD.jpg)
