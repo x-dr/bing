@@ -1,3 +1,5 @@
+20230601 | [Aerial image of the Great Barrier Reef, Australia (© AirPano LLC/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.ReefAwareness_EN-US4807167780_UHD.jpg)
+
 20230531 | [Sea otter pup, Prince William Sound, Alaska (© Donald M. Jones/Minden Pictures)](https://cn.bing.com/th?id=OHR.WorldOtterDay_EN-US4690332709_UHD.jpg)
 
 20230530 | [Playa del Amor in the Marietas Islands, off the coast of Puerto Vallarta, Mexico (© ferrantraite/Getty Images)](https://cn.bing.com/th?id=OHR.HiddenBeach_EN-US8990991711_UHD.jpg)
