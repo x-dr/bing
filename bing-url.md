@@ -1,3 +1,5 @@
+20230604 | [Black sand beach at Wai'ānapanapa State Park, Maui, Hawaii (© Matt Anderson Photography/Getty Images)](https://cn.bing.com/th?id=OHR.MauiBeach_EN-US7999098369_UHD.jpg)
+
 20230603 | [South Kaibab Trail in Grand Canyon National Park, Arizona (© Roman Khomlyak/Getty Images)](https://cn.bing.com/th?id=OHR.SouthKaibabTrail_EN-US7932080032_UHD.jpg)
 
 20230602 | [Gemsbok (Oryx gazella) in sand dunes, Namibia (© Sergey Gorshkov/Minden)](https://cn.bing.com/th?id=OHR.GemsbokNamibia_EN-US7844189674_UHD.jpg)
