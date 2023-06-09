@@ -1,3 +1,5 @@
+20230609 | [Hot air balloons in Cappadocia, Türkiye (© Anton Petrus/Getty Images)](https://cn.bing.com/th?id=OHR.BalloonsTurkey_EN-US8385517143_UHD.jpg)
+
 20230608 | [Humpback whale (© Philip Thurston/Getty Images)](https://cn.bing.com/th?id=OHR.PlayfulHumpback_EN-US8290961519_UHD.jpg)
 
 20230606 | [The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images)](https://cn.bing.com/th?id=OHR.CliffsEtretat_EN-US8125687089_UHD.jpg)
