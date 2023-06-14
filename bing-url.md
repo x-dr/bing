@@ -1,3 +1,5 @@
+20230614 | [US Capitol building and US flags, Washington, DC (© Orhan Cam/Shutterstock)](https://cn.bing.com/th?id=OHR.FlagDayCapitol_EN-US8751000302_UHD.jpg)
+
 20230613 | [Trees with Spanish moss over a boardwalk in the Okefenokee Swamp, Folkston, Georgia (© Emmer Photo/Alamy)](https://cn.bing.com/th?id=OHR.OkefenokeeSwamp_EN-US8688169198_UHD.jpg)
 
 20230611 | [Goliath heron, Kruger National Park, South Africa (© Johan Swanepoel/Alamy)](https://cn.bing.com/th?id=OHR.GoliathHeron_EN-US5151186674_UHD.jpg)
