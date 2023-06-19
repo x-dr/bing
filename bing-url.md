@@ -1,3 +1,5 @@
+20230619 | [City Hall lit up for Juneteenth in San Francisco, California (© yhelfman/Shutterstock)](https://cn.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_UHD.jpg)
+
 20230618 | [Common tern father with chick, Nickerson Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TernFather_EN-US0899570111_UHD.jpg)
 
 20230617 | ['Paddle Out for Unity' event in San Diego, California (© Brandon Colbert Photography/Getty Images)](https://cn.bing.com/th?id=OHR.SurfSanDiego_EN-US0761983664_UHD.jpg)
