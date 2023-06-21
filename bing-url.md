@@ -1,3 +1,5 @@
+20230621 | [Stonehenge, Salisbury Plain, Wiltshire, England (© Captain Skyhigh/Getty Images)](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg)
+
 20230620 | [Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)](https://cn.bing.com/th?id=OHR.EagleTree_EN-US8588984234_UHD.jpg)
 
 20230619 | [City Hall lit up for Juneteenth in San Francisco, California (© yhelfman/Shutterstock)](https://cn.bing.com/th?id=OHR.SanFranHall_EN-US0993956473_UHD.jpg)
