@@ -1,3 +1,5 @@
+20230623 | [Monarch butterflies feeding from wildflowers (© bookguy/Getty Images)](https://cn.bing.com/th?id=OHR.PollinatorMonarch_EN-US1506878789_UHD.jpg)
+
 20230622 | [Amazon rainforest, Peru (© Rhett Ayers Butler/Getty Images)](https://cn.bing.com/th?id=OHR.PeruAmazon_EN-US1428483038_UHD.jpg)
 
 20230621 | [Stonehenge, Salisbury Plain, Wiltshire, England (© Captain Skyhigh/Getty Images)](https://cn.bing.com/th?id=OHR.StonehengeSalisbury_EN-US1337618356_UHD.jpg)
