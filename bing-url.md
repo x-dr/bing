@@ -1,3 +1,5 @@
+20230624 | [Nha Phu Bay, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)](https://cn.bing.com/th?id=OHR.NhaTrang_EN-US1821500559_UHD.jpg)
+
 20230623 | [Monarch butterflies feeding from wildflowers (© bookguy/Getty Images)](https://cn.bing.com/th?id=OHR.PollinatorMonarch_EN-US1506878789_UHD.jpg)
 
 20230622 | [Amazon rainforest, Peru (© Rhett Ayers Butler/Getty Images)](https://cn.bing.com/th?id=OHR.PeruAmazon_EN-US1428483038_UHD.jpg)
