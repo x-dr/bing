@@ -1,3 +1,5 @@
+20230625 | [Al-Khazneh (the Treasury), Petra, Jordan (© WitthayaP/Shutterstock)](https://cn.bing.com/th?id=OHR.PetraTreasury_EN-US1981994011_UHD.jpg)
+
 20230624 | [Nha Phu Bay, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)](https://cn.bing.com/th?id=OHR.NhaTrang_EN-US1821500559_UHD.jpg)
 
 20230623 | [Monarch butterflies feeding from wildflowers (© bookguy/Getty Images)](https://cn.bing.com/th?id=OHR.PollinatorMonarch_EN-US1506878789_UHD.jpg)
