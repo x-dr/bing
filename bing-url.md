@@ -1,3 +1,5 @@
+20230630 | [Brown bear mother and cub, Lake Clark National Park and Preserve, Alaska (© Carlos Carreno/Getty Images)](https://cn.bing.com/th?id=OHR.ClamBears_EN-US1283973201_UHD.jpg)
+
 20230629 | [Banyak Islands, Sumatra, Indonesia (© fbxx/Getty Images)](https://cn.bing.com/th?id=OHR.BanyakIslands_EN-US2426505225_UHD.jpg)
 
 20230628 | [Rainbow flags and confetti, Reykjavík, Iceland (© Arctic-Images/Getty Images)](https://cn.bing.com/th?id=OHR.PrideIceland_EN-US2263138010_UHD.jpg)
