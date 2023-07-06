@@ -1,3 +1,5 @@
+20230706 | [Southern rockhopper penguins, Falkland Islands (© Tony Beck/Getty Images)](https://cn.bing.com/th?id=OHR.KissingPenguins_EN-US9934274722_UHD.jpg)
+
 20230705 | [Porto Timoni beach, Corfu, Greece (© nantonov/Getty Images)](https://cn.bing.com/th?id=OHR.CorfuBeach_EN-US1955770867_UHD.jpg)
 
 20230704 | [Empire State Building on the Fourth of July, New York City (© Tetra Images/Getty Images)](https://cn.bing.com/th?id=OHR.EmpireFourth_EN-US1852348146_UHD.jpg)
