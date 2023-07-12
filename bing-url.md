@@ -1,3 +1,5 @@
+20230712 | [Sand bar in Nakupenda Beach Nature Reserve, Zanzibar, Tanzania  (© Lubos Paukeje/Alamy)](https://cn.bing.com/th?id=OHR.NakupendaBeach_EN-US3130365422_UHD.jpg)
+
 20230711 | [Hong Kong SAR (© leungchopan/Getty Images)](https://cn.bing.com/th?id=OHR.WorldPopDay_EN-US3018429136_UHD.jpg)
 
 20230710 | [Field of lavender, Somerset, England (© Doug Chinnery/Getty Images)](https://cn.bing.com/th?id=OHR.SomersetLavender_EN-US0165780359_UHD.jpg)
