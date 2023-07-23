@@ -1,3 +1,5 @@
+20230723 | [Edinburgh Tea Estate, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)](https://cn.bing.com/th?id=OHR.TeaEstate_EN-US1720005197_UHD.jpg)
+
 20230722 | [Hammock camping in a bald cypress tree, Florida (© Mac Stone/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.HammockDay_EN-US1639653297_UHD.jpg)
 
 20230721 | [Storseisundet Bridge, Atlantic Ocean Road, Norway (© Morten Falch Sortland/Getty Images)](https://cn.bing.com/th?id=OHR.BridgeNorway_EN-US1530199433_UHD.jpg)
