@@ -1,3 +1,5 @@
+20230726 | [Jubail Mangrove Park in Abu Dhabi, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_UHD.jpg)
+
 20230725 | [Laguna de Torrevieja, Alicante, Spain (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.LasLagunas_EN-US2134252350_UHD.jpg)
 
 20230724 | [Zebras in Tarangire National Park, Tanzania (© cinoby/Getty Images)](https://cn.bing.com/th?id=OHR.ZebraCousins_EN-US1951215229_UHD.jpg)
