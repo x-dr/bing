@@ -1,3 +1,5 @@
+20230727 | [Arc de Triomphe du Carrousel and Louvre Pyramid, Paris, France (© Jon Hicks/Getty Images)](https://cn.bing.com/th?id=OHR.ParisLouvre_EN-US2282259448_UHD.jpg)
+
 20230726 | [Jubail Mangrove Park in Abu Dhabi, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)](https://cn.bing.com/th?id=OHR.MangrovePark_EN-US2211111720_UHD.jpg)
 
 20230725 | [Laguna de Torrevieja, Alicante, Spain (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.LasLagunas_EN-US2134252350_UHD.jpg)
