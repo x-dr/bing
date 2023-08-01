@@ -1,3 +1,5 @@
+20230801 | [Climber on Denali, Denali National Park, Alaska (© Andrew Peacock/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.DenaliClimber_EN-US1974827525_UHD.jpg)
+
 20230731 | [Rock House, Hocking Hills State Park, Ohio (© Kenneth Keifer/Getty Images)](https://cn.bing.com/th?id=OHR.RockHouse_EN-US1852534234_UHD.jpg)
 
 20230730 | [Farmland in the Palouse, Washington (© EJ-J/Getty Images)](https://cn.bing.com/th?id=OHR.PalouseHills_EN-US1737990003_UHD.jpg)
