@@ -1,3 +1,5 @@
+20230803 | [Zelenci Nature Reserve, Slovenia (© Andrey Danilovich/Getty Images)](https://cn.bing.com/th?id=OHR.ZelenciSprings_EN-US2246293953_UHD.jpg)
+
 20230802 | [Sandstone butte in Capitol Reef National Park, Utah (© Amazing Aerial Premium/Shutterstock)](https://cn.bing.com/th?id=OHR.CapitolButte_EN-US2124222699_UHD.jpg)
 
 20230801 | [Climber on Denali, Denali National Park, Alaska (© Andrew Peacock/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.DenaliClimber_EN-US1974827525_UHD.jpg)
