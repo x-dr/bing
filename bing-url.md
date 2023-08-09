@@ -1,3 +1,5 @@
+20230809 | [Indigenous artwork, Ngaruwanajirri Art Centre, Wurrumiyanga, Bathurst Island, Australia (© Robert Wyatt/Alamy)](https://cn.bing.com/th?id=OHR.BathurstArt_EN-US3084378813_UHD.jpg)
+
 20230808 | [Highways in Taipei, Taiwan (© Tavarius/Shutterstock)](https://cn.bing.com/th?id=OHR.InfinityTaipei_EN-US3008697284_UHD.jpg)
 
 20230807 | [Bodie Island Lighthouse, Nags Head, North Carolina (© Michael Ver Sprill/Getty Images)](https://cn.bing.com/th?id=OHR.BodieNC_EN-US2693689463_UHD.jpg)
