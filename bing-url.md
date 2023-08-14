@@ -1,3 +1,5 @@
+20230814 | [Tiny gecko on a leaf (© Darren Greenwood/Alamy)](https://cn.bing.com/th?id=OHR.GeckoLeaf_EN-US4138920498_UHD.jpg)
+
 20230813 | [Perseid meteor shower, Cottonwood Canyon State Park, Oregon (© Joshua Meador/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.PerseidsOregon_EN-US9307597393_UHD.jpg)
 
 20230812 | [Elephant family in Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)](https://cn.bing.com/th?id=OHR.ThreeElephants_EN-US3930300492_UHD.jpg)
