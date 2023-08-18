@@ -1,3 +1,5 @@
+20230818 | ['Avatar Mountains,' Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)](https://cn.bing.com/th?id=OHR.AvatarMountain_EN-US0084042494_UHD.jpg)
+
 20230817 | [Giant sequoia trees in Sequoia and Kings Canyon National Parks, California (© lucky-photographer/Getty Images)](https://cn.bing.com/th?id=OHR.SequoiaSunlight_EN-US6214316930_UHD.jpg)
 
 20230816 | [Overseas Highway in the Florida Keys (© Evgeny Vasenev/Cavan Images)](https://cn.bing.com/th?id=OHR.KeyWestBridge_EN-US9752501933_UHD.jpg)
