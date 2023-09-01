@@ -1,3 +1,5 @@
+20230901 | [Turkey tail mushroom, Brevard, North Carolina (© Bill Gozansky/Alamy)](https://cn.bing.com/th?id=OHR.TurkeyTailMush_EN-US2958542405_UHD.jpg)
+
 20230830 | [Whale shark, Ningaloo Reef, Western Australia (© Jason Edwards/Getty Images)](https://cn.bing.com/th?id=OHR.NingalooShark_EN-US2673625094_UHD.jpg)
 
 20230829 | [American bison in Grand Teton National Park, Wyoming (© Enrique Aguirre Aves/Getty Images)](https://cn.bing.com/th?id=OHR.TetonBison_EN-US5358590688_UHD.jpg)
