@@ -1,3 +1,5 @@
+20230908 | [The Circus townhouses in Bath, Somerset, England (© Gavin Hellier/Getty Images)](https://cn.bing.com/th?id=OHR.BathCircus_EN-US1560951776_UHD.jpg)
+
 20230907 | [Camels in the desert, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)](https://cn.bing.com/th?id=OHR.CamelsAbove_EN-US3904666620_UHD.jpg)
 
 20230906 | [Old Venetian harbor, Rethymno, Crete Island, Greece (© Gatsi/Getty Images)](https://cn.bing.com/th?id=OHR.CreteHarbor_EN-US3759550362_UHD.jpg)
