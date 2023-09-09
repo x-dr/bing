@@ -1,3 +1,5 @@
+20230909 | [Wat Chaiwatthanaram temple, Ayutthaya Historical Park, Thailand (© Weerasak Saeku/Getty Images)](https://cn.bing.com/th?id=OHR.AyutthayaTemple_EN-US1726415748_UHD.jpg)
+
 20230908 | [The Circus townhouses in Bath, Somerset, England (© Gavin Hellier/Getty Images)](https://cn.bing.com/th?id=OHR.BathCircus_EN-US1560951776_UHD.jpg)
 
 20230907 | [Camels in the desert, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)](https://cn.bing.com/th?id=OHR.CamelsAbove_EN-US3904666620_UHD.jpg)
