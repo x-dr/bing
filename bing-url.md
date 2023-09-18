@@ -1,3 +1,5 @@
+20230918 | [Milky Way over Southwest Alentejo and Vicentine Coast Natural Park, Portugal (© Daniel Garrido/Getty Images)](https://cn.bing.com/th?id=OHR.MilkyWayPortugal_EN-US3289730564_UHD.jpg)
+
 20230917 | [Cuban tody, Alejandro de Humboldt National Park, Cuba (© Bruno D'Amicis/Minden Pictures)](https://cn.bing.com/th?id=OHR.CubanTody_EN-US3083797062_UHD.jpg)
 
 20230916 | [A beer tent at Oktoberfest in Theresienwiese, Munich, Germany (© Peter Kneffel/picture alliance via Getty Images)](https://cn.bing.com/th?id=OHR.OktoberfestWorkers_EN-US5478786117_UHD.jpg)
