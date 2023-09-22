@@ -1,3 +1,5 @@
+20230922 | [Southern white rhinoceros males, Shamwari Private Game Reserve, South Africa (© David Silverman/Getty Images)](https://cn.bing.com/th?id=OHR.ShamwariRhino_EN-US1414731584_UHD.jpg)
+
 20230921 | [Inside the Nobel Peace Center, Oslo, Norway (© Ilyas Ayub/Alamy)](https://cn.bing.com/th?id=OHR.NobelNorway_EN-US3740897457_UHD.jpg)
 
 20230920 | [Roman-inspired aqueduct, Arkadia Park, Poland (© PATSTOCK/Getty Images)](https://cn.bing.com/th?id=OHR.ArkadiaPark_EN-US3604031201_UHD.jpg)
