@@ -1,3 +1,5 @@
+20230926 | [Venice Skatepark at sunset, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)](https://cn.bing.com/th?id=OHR.VeniceSkatePark_EN-US1972530060_UHD.jpg)
+
 20230925 | [Sea otter in Bartlett Cove, Glacier Bay National Park and Preserve, Alaska (© Andrew Peacock/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.GlacierBayOtter_EN-US1818492105_UHD.jpg)
 
 20230924 | [The Fraser River near Mount Robson, British Columbia, Canada (© phototropic/Getty Images)](https://cn.bing.com/th?id=OHR.FraserRiverBC_EN-US1696932265_UHD.jpg)
