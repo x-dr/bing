@@ -1,3 +1,5 @@
+20230929 | [Jiaxiu Tower under a full moon, Guiyang, Guizhou province, China (© Wang Yukun/Getty Images)](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_UHD.jpg)
+
 20230928 | [Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_UHD.jpg)
 
 20230927 | [The Via Krupp footpath on Capri island, Italy (© Mikolaj Niemczewski/Shutterstock)](https://cn.bing.com/th?id=OHR.CapriKrupp_EN-US2044781395_UHD.jpg)
