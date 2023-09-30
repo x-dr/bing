@@ -1,3 +1,5 @@
+20230930 | [Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)](https://cn.bing.com/th?id=OHR.ShenandoahFoliage_EN-US9719781431_UHD.jpg)
+
 20230929 | [Jiaxiu Tower under a full moon, Guiyang, Guizhou province, China (© Wang Yukun/Getty Images)](https://cn.bing.com/th?id=OHR.GuiyangMoon_EN-US2407385108_UHD.jpg)
 
 20230928 | [Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)](https://cn.bing.com/th?id=OHR.MaritimeDay_EN-US2262770680_UHD.jpg)
