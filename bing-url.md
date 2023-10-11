@@ -1,3 +1,5 @@
+20231011 | [The Painted Hills in John Day Fossil Beds National Monument, Oregon (© Ben Herndon/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.JohnDayFossil_EN-US9957224234_UHD.jpg)
+
 20231010 | [Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SoprisSunrise_EN-US9658915846_UHD.jpg)
 
 20231009 | [Fremont Indian petroglyphs, Dinosaur National Monument, Jensen, Utah (© Dan Leeth/Alamy)](https://cn.bing.com/th?id=OHR.FremontPetroglyph_EN-US9601526664_UHD.jpg)
