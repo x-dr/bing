@@ -1,3 +1,5 @@
+20231016 | [Golden larches and Prusik Peak, the Enchantments, Washington (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.GoldenEnchantments_EN-US1308880623_UHD.jpg)
+
 20231015 | [European hedgehog sheltering in tree bark, Sussex, England (© Jules Cox/Minden Pictures)](https://cn.bing.com/th?id=OHR.AutumnHedgehog_EN-US1171311197_UHD.jpg)
 
 20231014 | ['Ring of fire' annular solar eclipse, Doha, Qatar (© Sorin Furcoi/Getty Images)](https://cn.bing.com/th?id=OHR.RingEclipse_EN-US1077107553_UHD.jpg)
