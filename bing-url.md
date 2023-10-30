@@ -1,3 +1,5 @@
+20231030 | [Common raven sitting on a branch (© WildMedia/Shutterstock)](https://cn.bing.com/th?id=OHR.AutumnRaven_EN-US0686194098_UHD.jpg)
+
 20231029 | [Bonaventure Cemetery, Savannah, Georgia (© Kelly vanDellen/Alamy)](https://cn.bing.com/th?id=OHR.SavannahSculpture_EN-US0375520303_UHD.jpg)
 
 20231028 | [Windmills in Castilla-La Mancha, Spain (© Getty Images)](https://cn.bing.com/th?id=OHR.FiveWinds_EN-US0292788215_UHD.jpg)
