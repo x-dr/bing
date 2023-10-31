@@ -1,3 +1,5 @@
+20231031 | [Halloween jack-o'-lanterns on a porch (© Bing Image Creator)](https://cn.bing.com/th?id=OHR.HalloweenPorchAI_EN-US0776611565_UHD.jpg)
+
 20231030 | [Common raven sitting on a branch (© WildMedia/Shutterstock)](https://cn.bing.com/th?id=OHR.AutumnRaven_EN-US0686194098_UHD.jpg)
 
 20231029 | [Bonaventure Cemetery, Savannah, Georgia (© Kelly vanDellen/Alamy)](https://cn.bing.com/th?id=OHR.SavannahSculpture_EN-US0375520303_UHD.jpg)
