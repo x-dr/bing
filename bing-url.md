@@ -1,3 +1,5 @@
+20231103 | [Pacific sea nettles off the coast of Carmel, California (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SeaNettles_EN-US6654060294_UHD.jpg)
+
 20231102 | [Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.DeathValleySalt_EN-US1068737086_UHD.jpg)
 
 20231101 | [Mummy Cave ruins, Canyon de Chelly National Monument, Arizona (© Cindy Miller Hopkins/Danita Delimont)](https://cn.bing.com/th?id=OHR.MummyCaveRuins_EN-US0871963100_UHD.jpg)
