@@ -1,3 +1,5 @@
+20231107 | [Kirkilai lakes and lookout tower, Biržai Regional Park, Lithuania (© MNStudio/Shutterstock)](https://cn.bing.com/th?id=OHR.KirkilaiTower_EN-US7178436226_UHD.jpg)
+
 20231106 | [Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg)
 
 20231105 | [Quartzite formation, Playa del Silencio, Asturias, Spain (© Jean-Philippe Delobelle/Minden Pictures)](https://cn.bing.com/th?id=OHR.SilencioSpain_EN-US6874925537_UHD.jpg)
