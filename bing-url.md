@@ -1,3 +1,5 @@
+20231108 | [West Indian manatee mother and baby, Three Sisters Springs, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.ManateeMama_EN-US7376333243_UHD.jpg)
+
 20231107 | [Kirkilai lakes and lookout tower, Biržai Regional Park, Lithuania (© MNStudio/Shutterstock)](https://cn.bing.com/th?id=OHR.KirkilaiTower_EN-US7178436226_UHD.jpg)
 
 20231106 | [Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)](https://cn.bing.com/th?id=OHR.LagoPehoe_EN-US6983781896_UHD.jpg)
