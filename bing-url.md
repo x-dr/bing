@@ -1,3 +1,5 @@
+20231114 | [Russell lupines along Lake Tekapo, South Island, New Zealand (© Jeffrey Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.RussellLupines_EN-US8017518812_UHD.jpg)
+
 20231113 | [Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)](https://cn.bing.com/th?id=OHR.OliveOrchard_EN-US7903927729_UHD.jpg)
 
 20231112 | [Lamps on the banks of the Sarayu River for Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)](https://cn.bing.com/th?id=OHR.DiwaliAyodhya_EN-US7782727326_UHD.jpg)
