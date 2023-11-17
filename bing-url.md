@@ -1,3 +1,5 @@
+20231117 | [Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)](https://cn.bing.com/th?id=OHR.BadRiver_EN-US1270508214_UHD.jpg)
+
 20231116 | [View over Athens and the Acropolis, Greece (© Mlenny/Getty Images)](https://cn.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_UHD.jpg)
 
 20231115 | [Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)](https://cn.bing.com/th?id=OHR.SarekSweden_EN-US8292531624_UHD.jpg)
