@@ -1,3 +1,5 @@
+20231118 | [Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)](https://cn.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_UHD.jpg)
+
 20231117 | [Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)](https://cn.bing.com/th?id=OHR.BadRiver_EN-US1270508214_UHD.jpg)
 
 20231116 | [View over Athens and the Acropolis, Greece (© Mlenny/Getty Images)](https://cn.bing.com/th?id=OHR.AthensAcropolis_EN-US8385195396_UHD.jpg)
