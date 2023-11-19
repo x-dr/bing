@@ -1,3 +1,5 @@
+20231119 | [Alam-Pedja Nature Reserve, Estonia (© Sven Zacek/Minden Pictures)](https://cn.bing.com/th?id=OHR.FrozenBog_EN-US2448711069_UHD.jpg)
+
 20231118 | [Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)](https://cn.bing.com/th?id=OHR.MilsePolarBear_EN-US1615028560_UHD.jpg)
 
 20231117 | [Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)](https://cn.bing.com/th?id=OHR.BadRiver_EN-US1270508214_UHD.jpg)
