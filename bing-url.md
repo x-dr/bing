@@ -1,3 +1,5 @@
+20231130 | [The Storr, a rock outcrop on the Isle of Skye, Scotland (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.TrotternishStorr_EN-US4700593682_UHD.jpg)
+
 20231129 | [Rockefeller Center Christmas tree, New York City (© Jonathan Orenstein/Getty Images)](https://cn.bing.com/th?id=OHR.TreeLighting_EN-US4396317497_UHD.jpg)
 
 20231128 | [Giant land art fresco by artist Saype in Istanbul, Türkiye (© Chris McGrath/Getty Images)](https://cn.bing.com/th?id=OHR.HumanKindness_EN-US4254216907_UHD.jpg)
