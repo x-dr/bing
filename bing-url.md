@@ -1,3 +1,5 @@
+20231220 | [Village in Val Gardena at Christmas, Dolomites, Italy (© Ingus Kruklitis/Getty Images)](https://cn.bing.com/th?id=OHR.ValGardenaItaly_EN-US8887980856_UHD.jpg)
+
 20231219 | [Christmas tree in Castle Square, Old Town, Warsaw, Poland (© Panther Media GmbH/Alamy)](https://cn.bing.com/th?id=OHR.WarsawChristmas_EN-US8819312496_UHD.jpg)
 
 20231218 | [Capitol Reef National Park, Utah (© Jeff Clay/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.CapitolReefSnow_EN-US8594085615_UHD.jpg)
