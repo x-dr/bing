@@ -1,3 +1,5 @@
+20231221 | [Avenue of birch trees near Uffing am Staffelsee, Bavaria, Germany (© Reinhard Schmid/Huber/eStock Photo)](https://cn.bing.com/th?id=OHR.BavarianSolstice_EN-US9111666986_UHD.jpg)
+
 20231220 | [Village in Val Gardena at Christmas, Dolomites, Italy (© Ingus Kruklitis/Getty Images)](https://cn.bing.com/th?id=OHR.ValGardenaItaly_EN-US8887980856_UHD.jpg)
 
 20231219 | [Christmas tree in Castle Square, Old Town, Warsaw, Poland (© Panther Media GmbH/Alamy)](https://cn.bing.com/th?id=OHR.WarsawChristmas_EN-US8819312496_UHD.jpg)
