@@ -1,3 +1,5 @@
+20231229 | [Oud-West, Amsterdam, Netherlands (© George Pachantouris/Getty Images)](https://cn.bing.com/th?id=OHR.BlueAmsterdam_EN-US6868017848_UHD.jpg)
+
 20231228 | [Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.GreenlandHumpback_EN-US0330682837_UHD.jpg)
 
 20231227 | [Kirkjufell, Snæfellsnes peninsula, Iceland (© Ratnakorn Piyasirisorost/Getty Images)](https://cn.bing.com/th?id=OHR.KirkjufellAurora_EN-US0249270913_UHD.jpg)
