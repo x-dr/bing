@@ -1,3 +1,5 @@
+20231231 | [Fireworks over Phra Nakhon Khiri, Phetchaburi, Thailand (© noomcpk/Shutterstock)](https://cn.bing.com/th?id=OHR.ThailandNewYears_EN-US7115555089_UHD.jpg)
+
 20231230 | [Daiichi Tadami River Bridge, Fukushima prefecture, Japan (© DoctorEgg/Getty Images)](https://cn.bing.com/th?id=OHR.TadamiWinter_EN-US6973402256_UHD.jpg)
 
 20231229 | [Oud-West, Amsterdam, Netherlands (© George Pachantouris/Getty Images)](https://cn.bing.com/th?id=OHR.BlueAmsterdam_EN-US6868017848_UHD.jpg)
