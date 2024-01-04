@@ -1,3 +1,5 @@
+20240104 | [Golden Gate Bridge, San Francisco, California (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.GoldenGateLight_EN-US7749261025_UHD.jpg)
+
 20240103 | [Bodleian Library, University of Oxford, England (© Andrew Holt/Getty Images)](https://cn.bing.com/th?id=OHR.BodleianCeiling_EN-US7552379941_UHD.jpg)
 
 20240102 | [Prayer flags in Phobjikha Valley, Bhutan (© John Warburton-Lee/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.BhutanSolstice_EN-US7410762908_UHD.jpg)
