@@ -1,3 +1,5 @@
+20240105 | [International Ice and Snow Sculpture Festival, Harbin, China (© WANG ZHAO/AFP/Getty Images)](https://cn.bing.com/th?id=OHR.HarbinFestival_EN-US7952970209_UHD.jpg)
+
 20240104 | [Golden Gate Bridge, San Francisco, California (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.GoldenGateLight_EN-US7749261025_UHD.jpg)
 
 20240103 | [Bodleian Library, University of Oxford, England (© Andrew Holt/Getty Images)](https://cn.bing.com/th?id=OHR.BodleianCeiling_EN-US7552379941_UHD.jpg)
