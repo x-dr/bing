@@ -16,7 +16,7 @@ jobs:
 
       - name: Get release 
         run: |
-          zip -r 1080pimages.zip 1080pimages/
+          # zip -r 1080pimages.zip 1080pimages/
           zip -r images.zip images/
           zip -r json.zip json/
 
@@ -27,5 +27,5 @@ jobs:
           files: |
             json.zip
             images.zip
-            1080pimages.zip   
+            # 1080pimages.zip   
           tag_name: ${{ github.event.inputs.tag }}
