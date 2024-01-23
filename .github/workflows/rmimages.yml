@@ -1,0 +1,41 @@
+name: rmimages
+
+on:
+  workflow_dispatch:
+    inputs:
+      tag:
+        description: "The tag version you want to build"
+
+jobs:
+  build:
+    runs-on: ubuntu-latest
+
+    steps:
+      - name: Set time zone
+        uses: szenius/set-timezone@v1.0
+        with:
+          timezoneLinux: "Asia/Shanghai"
+          timezoneMacos: "Asia/Shanghai"
+          timezoneWindows: "China Standard Time"
+      - name: Checkout code
+        uses: actions/checkout@v4.1.1
+      - name: Get release 
+        run: |
+          rm -rf *images
+          mkdir -p 1080pimages
+          mkdir -p images
+          git log --pretty=oneline --branches -- images
+          git filter-branch --force --index-filter 'git rm --cached --ignore-unmatch --ignore-unmatch images' --prune-empty --tag-name-filter cat -- --all
+          du -sh .git
+          touch dd
+          git config --local user.email "action@github.com"
+          git config --local user.name "GitHub Action"
+          git add .
+          git commit -m "⌚️$(date +%Y%m%d%H%M%S)" -a
+      - name: Push changes
+        uses: ad-m/github-push-action@master
+        with:
+          # github_token: ${{ secrets.GH_TOKEN }}
+          github_token: ${{ secrets.GITHUB_TOKEN }}
+          branch: ${{ github.ref }}
+          force: true

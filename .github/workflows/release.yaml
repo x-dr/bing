@@ -1,0 +1,37 @@
+name: release
+
+on:
+  workflow_dispatch:
+    inputs:
+      tag:
+        description: "The tag version you want to build"
+
+jobs:
+  build:
+    runs-on: ubuntu-latest
+
+    steps:
+      - name: Checkout code
+        uses: actions/checkout@v4.1.1
+
+      - name: Get release 
+        run: |
+          # zip -r 1080pimages.zip 1080pimages/
+          # mv    images/2022*.png  2022_images/
+          # zip  -r  2023-2024_images.zip images/
+          # zip  -r  2022_images.zip 2022_images/
+          # zip -r json.zip json/
+          rm -rf .git
+          cd ..
+          zip -r bing.zip bing/
+          cd bing
+          cp ../bing.zip ./
+          du -sh *
+
+      - name: Release
+        uses: softprops/action-gh-release@v1
+        with:
+          name: ${{ github.event.inputs.tag }}
+          files: |
+            bing.zip
+          tag_name: ${{ github.event.inputs.tag }}
