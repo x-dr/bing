@@ -1,0 +1,31 @@
+name: release
+
+on:
+  workflow_dispatch:
+    inputs:
+      tag:
+        description: "The tag version you want to build"
+
+jobs:
+  build:
+    runs-on: ubuntu-latest
+
+    steps:
+      - name: Checkout code
+        uses: actions/checkout@v4.1.1
+
+      - name: Get release 
+        run: |
+          zip -r 1080pimages.zip 1080pimages/
+          zip -r images.zip images/
+          zip -r json.zip json/
+
+      - name: Release
+        uses: softprops/action-gh-release@v1
+        with:
+          name: ${{ github.event.inputs.tag }}
+          files: |
+            json.zip
+            images.zip
+            1080pimages.zip   
+          tag_name: ${{ github.event.inputs.tag }}
