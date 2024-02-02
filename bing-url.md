@@ -1,3 +1,5 @@
+20240202 | [Marmot peeking out of its burrow (© Scacciamosche/Getty Images)](https://cn.bing.com/th?id=OHR.AlpineMarmot_EN-US6895103237_UHD.jpg)
+
 20240201 | [Dizzy Gillespie in 1990 at the 32nd Monterey Jazz Festival, California (© Craig Lovell/Eagle Visions Photography/Alamy)](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_UHD.jpg)
 
 20240131 | [Burchell's zebra mother and foal, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)](https://cn.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_UHD.jpg)
