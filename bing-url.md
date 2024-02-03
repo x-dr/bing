@@ -1,3 +1,5 @@
+20240203 | [Grand Canal with Santa Maria della Salute Basilica, Venice, Italy (© RudyBalasko/Getty Images)](https://cn.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_UHD.jpg)
+
 20240202 | [Marmot peeking out of its burrow (© Scacciamosche/Getty Images)](https://cn.bing.com/th?id=OHR.AlpineMarmot_EN-US6895103237_UHD.jpg)
 
 20240201 | [Dizzy Gillespie in 1990 at the 32nd Monterey Jazz Festival, California (© Craig Lovell/Eagle Visions Photography/Alamy)](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_UHD.jpg)
