@@ -1,3 +1,5 @@
+20240207 | [St. James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)](https://cn.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_UHD.jpg)
+
 20240206 | [Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_UHD.jpg)
 
 20240205 | [Monarch butterflies, Goleta, California (© Craig Rademacher/500px/Getty Images)](https://cn.bing.com/th?id=OHR.WesternMonarchs_EN-US8386035297_UHD.jpg)
