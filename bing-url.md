@@ -1,3 +1,5 @@
+20240211 | [Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)](https://cn.bing.com/th?id=OHR.FolegandrosGreece_EN-US6921652492_UHD.jpg)
+
 20240210 | [Artists performing the dragon dance for Chinese New Year, Luzhou, China (© Liu Guoxing/VCG via Getty Images)](https://cn.bing.com/th?id=OHR.ChinaDragon_EN-US6781838142_UHD.jpg)
 
 20240209 | [Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)](https://cn.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_UHD.jpg)
