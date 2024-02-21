@@ -1,3 +1,5 @@
+20240221 | [Firefall at Horsetail Fall, Yosemite National Park, California (© Gregory B Cuvelier/Shutterstock)](https://cn.bing.com/th?id=OHR.YosemiteFirefall_EN-US8169903146_UHD.jpg)
+
 20240220 | [Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_UHD.jpg)
 
 20240219 | [Lincoln Memorial, Washington, DC (© Steve Whiston/Fallen Log Photography/Getty Images)](https://cn.bing.com/th?id=OHR.LincolnSunset_EN-US8001542624_UHD.jpg)
