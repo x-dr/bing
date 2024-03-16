@@ -1,3 +1,5 @@
+20240316 | [Giant panda eating bamboo, Chengdu, China (© Suzi Eszterhas/Minden Pictures)](https://cn.bing.com/th?id=OHR.BambooPanda_EN-US2038899729_UHD.jpg)
+
 20240315 | [Anza-Borrego Desert State Park, California (© Stephen Matera/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_EN-US1951730180_UHD.jpg)
 
 20240314 | [Wat Phra Ngam, Ayutthaya Historical Park, Thailand (© boonchai wedmakawand/Alamy)](https://cn.bing.com/th?id=OHR.AyutthayaTree_EN-US1871119120_UHD.jpg)
