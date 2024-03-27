@@ -1,3 +1,5 @@
+20240327 | [Teatro Colón in Buenos Aires, Argentina (© Wei Hao Ho/Alamy)](https://cn.bing.com/th?id=OHR.TeatroColon_EN-US2518867279_UHD.jpg)
+
 20240326 | [Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)](https://cn.bing.com/th?id=OHR.HangRaiVietnam_EN-US2418713642_UHD.jpg)
 
 20240325 | [Celebrating Holi in Mathura, Uttar Pradesh, India (© Avishek Das/SOPA Images/LightRocket via Getty Images)](https://cn.bing.com/th?id=OHR.ColorfulHoli_EN-US2354988297_UHD.jpg)
