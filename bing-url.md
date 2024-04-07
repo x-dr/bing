@@ -1,3 +1,5 @@
+20240407 | [North American beaver in a pond near Wonder Lake, Denali National Park, Alaska (© Paul Souders/Getty Images)](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_UHD.jpg)
+
 20240406 | [Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)](https://cn.bing.com/th?id=OHR.JapanHimeji_EN-US1768279571_UHD.jpg)
 
 20240405 | [The Bahamas photographed from the International Space Station (© NASA)](https://cn.bing.com/th?id=OHR.BahamasSpace_EN-US1544254149_UHD.jpg)
