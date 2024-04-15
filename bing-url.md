@@ -1,3 +1,5 @@
+20240415 | [The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)](https://cn.bing.com/th?id=OHR.RedBallBelgium_EN-US3314192425_UHD.jpg)
+
 20240414 | [Sunset on Bowling Ball Beach, Mendocino County, California (© Melo Qiao/Getty Images)](https://cn.bing.com/th?id=OHR.BowlingBallCali_EN-US3241530931_UHD.jpg)
 
 20240413 | [Apple trees in spring, Germany (© Smileus/Getty Images)](https://cn.bing.com/th?id=OHR.SpringApple_EN-US3148648329_UHD.jpg)
