@@ -1,3 +1,5 @@
+20240430 | [Cheetah in morning rain, Ndutu Plains, Ngorongoro Conservation Area, Tanzania (© Paul Souders/Getty Images)](https://cn.bing.com/th?id=OHR.CheetahRain_EN-US6179670004_UHD.jpg)
+
 20240429 | [Fujian Tulou complex of historical and cultural heritage buildings in Fujian province, China (© Hongjie Han/Getty Images)](https://cn.bing.com/th?id=OHR.TulouFujian_EN-US6009679228_UHD.jpg)
 
 20240428 | [El Capitan at sunrise in Guadalupe Mountains National Park, Texas (© Adam Mowery/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.GuadalupeTexas_EN-US5906260854_UHD.jpg)
