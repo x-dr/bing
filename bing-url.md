@@ -1,3 +1,5 @@
+20240507 | [A duckling swimming in a water meadow, Suffolk, England (© Nick Hurst/Getty Images)](https://cn.bing.com/th?id=OHR.LittleDuckling_EN-US0447954247_UHD.jpg)
+
 20240506 | [The Roaches, Peak District, England (© George W Johnson/Getty Images)](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_EN-US9733115206_UHD.jpg)
 
 20240505 | [Colonnade in San Miguel de Allende, Guanajuato, Mexico (© Mint Images/Getty Images)](https://cn.bing.com/th?id=OHR.SanMiguelAllende_EN-US9621237021_UHD.jpg)
