@@ -1,3 +1,5 @@
+20240522 | [Tasmanian snow gum trees, Mount Field National Park, Tasmania, Australia (© Ignacio Palacios/Getty Images)](https://cn.bing.com/th?id=OHR.SnowGumTasmania_EN-US4058572259_UHD.jpg)
+
 20240521 | [Cameron Highlands tea plantation, Malaysia (© alex cheong/Getty Images)](https://cn.bing.com/th?id=OHR.MalaysiaTea_EN-US3322214623_UHD.jpg)
 
 20240520 | [Bee tending a honeycomb (© Simun Ascic/Alamy)](https://cn.bing.com/th?id=OHR.HoneycombBee_EN-US2941694554_UHD.jpg)
