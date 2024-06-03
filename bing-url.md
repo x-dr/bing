@@ -1,3 +1,5 @@
+20240603 | [Bicycles in Copenhagen, Denmark (© Alphotographic/Getty Images)](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_EN-US6431027482_UHD.jpg)
+
 20240602 | [Flowers blooming in a garden, Alaska (© jet 67/Shutterstock)](https://cn.bing.com/th?id=OHR.GardenWeek_EN-US6333815527_UHD.jpg)
 
 20240601 | [San Francisco City Hall lit up in rainbow lights for Pride, California (© Josh Edelson/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_UHD.jpg)
