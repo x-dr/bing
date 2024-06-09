@@ -1,3 +1,5 @@
+20240609 | [Bardenas Reales Biosphere Reserve and Natural Park, Bardenas, Navarra, Spain (© Aliaume Chapelle/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_UHD.jpg)
+
 20240608 | [Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_EN-US6860539516_UHD.jpg)
 
 20240607 | [Family of humpback whales, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.HumpbackFamily_EN-US6789097648_UHD.jpg)
