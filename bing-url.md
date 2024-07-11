@@ -1,3 +1,5 @@
+20240711 | [Gangi, Sicily, Italy (© Andrea Caruso/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_UHD.jpg)
+
 20240710 | [Collared aracari, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://cn.bing.com/th?id=OHR.CollaredAracari_EN-US4924599176_UHD.jpg)
 
 20240709 | [Talampaya National Park, La Rioja province, Argentina (© Gonzalo Azumendi/Getty Images)](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_UHD.jpg)
