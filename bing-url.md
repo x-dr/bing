@@ -1,3 +1,5 @@
+20240731 | [Hoodoos, Sunset Point, Bryce Canyon National Park, Utah (© Tim Fitzharris/Minden Pictures)](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_UHD.jpg)
+
 20240730 | [San Gimignano, Siena, Tuscany, Italy (© MNStudio/Shutterstock)](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_UHD.jpg)
 
 20240729 | [Tiger siblings in Jim Corbett National Park, Uttarakhand, India (© Sourabh Bharti/Getty Images)](https://cn.bing.com/th?id=OHR.CorbettTigers_EN-US6183924498_UHD.jpg)
