@@ -1,3 +1,5 @@
+20240807 | [St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)](https://cn.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_UHD.jpg)
+
 20240806 | [Molokini Crater, Maui, Hawaii (© Douglas Peebles/eStock Photo)](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_UHD.jpg)
 
 20240805 | [Lavender field, Hertfordshire, England (© George W Johnson/Getty Images)](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_UHD.jpg)
