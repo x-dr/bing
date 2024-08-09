@@ -1,3 +1,5 @@
+20240809 | [Inca ruin of Sacsayhuamán near Cusco, Peru (© SL_Photography/Getty Images)](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_UHD.jpg)
+
 20240808 | [Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)](https://cn.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_UHD.jpg)
 
 20240807 | [St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)](https://cn.bing.com/th?id=OHR.MichiganLighthouse_EN-US2082743301_UHD.jpg)
