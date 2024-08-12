@@ -1,3 +1,5 @@
+20240812 | [African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_UHD.jpg)
+
 20240811 | [Wooden path to Kennedy Lake, Vancouver Island, BC, Canada (© EB Adventure Photography/Shutterstock)](https://cn.bing.com/th?id=OHR.TofinoVancouver_EN-US1466348668_UHD.jpg)
 
 20240810 | [Joshua Tree National Park, California (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_UHD.jpg)
