@@ -1,3 +1,5 @@
+20240816 | [Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_EN-US9463845683_UHD.jpg)
+
 20240815 | [Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_UHD.jpg)
 
 20240814 | [Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_UHD.jpg)
