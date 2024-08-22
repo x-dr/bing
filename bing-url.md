@@ -1,3 +1,5 @@
+20240822 | [Ocean City, Maryland, at sunrise (© Kevin Olson/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_UHD.jpg)
+
 20240821 | [Nazca boobies, Wolf Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.NazcaBooby_EN-US0971401791_UHD.jpg)
 
 20240820 | [Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_UHD.jpg)
