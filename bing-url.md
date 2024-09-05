@@ -1,3 +1,5 @@
+20240905 | [Toronto city skyline seen from Lake Ontario, Canada (© Roberto Machado Noa/Getty Images)](https://cn.bing.com/th?id=OHR.TIFF2024_EN-US9586964456_UHD.jpg)
+
 20240904 | [Dusky eagle-owls, Pakistan (© zahoor salmi/Getty Images)](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_UHD.jpg)
 
 20240902 | ['Power of the Titans' mural by Andrei Krautsou, North Kansas City, Missouri (© Stephen Taylor/Alamy)](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_UHD.jpg)
