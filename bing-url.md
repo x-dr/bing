@@ -1,3 +1,5 @@
+20240914 | [Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg)
+
 20240913 | [Lighthouse at Point Reyes National Seashore, California (© RMB Images/Photography by Robert Bowman/Getty Images)](https://cn.bing.com/th?id=OHR.PointReyes_EN-US4731803211_UHD.jpg)
 
 20240912 | [Dolphin pod near Réunion, overseas department of France, Indian Ocean (© Joost van Uffelen/Shutterstock)](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-US4598756391_UHD.jpg)
