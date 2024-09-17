@@ -1,3 +1,5 @@
+20240917 | [Mid-Autumn Festival in Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy)](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-US5283310908_UHD.jpg)
+
 20240916 | [Wallabies at sunrise, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)](https://cn.bing.com/th?id=OHR.SunriseWallabies_EN-US5210230008_UHD.jpg)
 
 20240915 | [Casa del Prado, Balboa Park, San Diego, California (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.BalboaPark_EN-US5050015037_UHD.jpg)
