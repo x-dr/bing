@@ -1,3 +1,5 @@
+20240920 | [Ocracoke Lighthouse on Ocracoke Island, North Carolina (© Chansak Joe/Getty Images)](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_UHD.jpg)
+
 20240919 | [Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.PiratePlayground_EN-US3254868743_UHD.jpg)
 
 20240918 | [Gujō Hachiman Castle, Gifu prefecture, Japan (© ta2funk ito/500px/Getty Images)](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_UHD.jpg)
