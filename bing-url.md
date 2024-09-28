@@ -1,3 +1,5 @@
+20240928 | [Cottonwoods seen through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_UHD.jpg)
+
 20240927 | [Aerial view of the Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.VeniceAerial_EN-US4386837118_UHD.jpg)
 
 20240926 | [Blue-throated toucanet, Los Quetzales National Park, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LittleToucanet_EN-US4236893251_UHD.jpg)
