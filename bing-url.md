@@ -1,3 +1,5 @@
+20240929 | [West Cornwall Covered Bridge over the Housatonic River, Connecticut (© pabradyphoto/Getty Images)](https://cn.bing.com/th?id=OHR.ConnecticutBridge_EN-US4557226937_UHD.jpg)
+
 20240928 | [Cottonwoods seen through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-US1769933001_UHD.jpg)
 
 20240927 | [Aerial view of the Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.VeniceAerial_EN-US4386837118_UHD.jpg)
