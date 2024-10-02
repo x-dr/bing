@@ -1,3 +1,5 @@
+20241002 | [Wind River, Brooks Range, Arctic National Wildlife Refuge, Alaska (© Design Pics/Danita Delimont)](https://cn.bing.com/th?id=OHR.WindRiverAlaska_EN-US4993335597_UHD.jpg)
+
 20241001 | [Last light on Half Dome, Yosemite National Park, California (© Adam Burton/Alamy)](https://cn.bing.com/th?id=OHR.HalfDomeYosemite_EN-US4890007214_UHD.jpg)
 
 20240930 | [Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/Danita Delimont)](https://cn.bing.com/th?id=OHR.WalrusNorway_EN-US4658961878_UHD.jpg)
