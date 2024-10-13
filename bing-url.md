@@ -1,3 +1,5 @@
+20241013 | [Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)](https://cn.bing.com/th?id=OHR.AlcazarSeville_EN-US9523655289_UHD.jpg)
+
 20241012 | [Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_UHD.jpg)
 
 20241011 | [Cape Breton Highlands, Nova Scotia, Canada (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.CelticColours_EN-US9284206130_UHD.jpg)
