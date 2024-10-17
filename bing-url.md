@@ -1,3 +1,5 @@
+20241017 | [Frost-covered dunes on the surface of Mars (© NASA/JPL-Caltech/UArizona)](https://cn.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_UHD.jpg)
+
 20241016 | [Fossils of belemnites and ammonites, Jurassic Coast, Dorset, England (© Nature Picture Library/Alamy)](https://cn.bing.com/th?id=OHR.FossilsDorset_EN-US9782204825_UHD.jpg)
 
 20241015 | [Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)](https://cn.bing.com/th?id=OHR.MaraMigration_EN-US9704012409_UHD.jpg)
