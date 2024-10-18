@@ -1,3 +1,5 @@
+20241018 | [Autumn in Central Park, Manhattan, New York (© mapman/Shutterstock)](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_UHD.jpg)
+
 20241017 | [Frost-covered dunes on the surface of Mars (© NASA/JPL-Caltech/UArizona)](https://cn.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_UHD.jpg)
 
 20241016 | [Fossils of belemnites and ammonites, Jurassic Coast, Dorset, England (© Nature Picture Library/Alamy)](https://cn.bing.com/th?id=OHR.FossilsDorset_EN-US9782204825_UHD.jpg)
