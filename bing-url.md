@@ -1,3 +1,5 @@
+20241020 | [Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)](https://cn.bing.com/th?id=OHR.SmilingSloth_EN-US2707836219_UHD.jpg)
+
 20241019 | [Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)](https://cn.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_UHD.jpg)
 
 20241018 | [Autumn in Central Park, Manhattan, New York (© mapman/Shutterstock)](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_UHD.jpg)
