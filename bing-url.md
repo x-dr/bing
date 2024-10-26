@@ -1,3 +1,5 @@
+20241026 | [Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy)](https://cn.bing.com/th?id=OHR.GhostForest_EN-US3389955484_UHD.jpg)
+
 20241025 | [The Mont Blanc massif, near Chamonix, France (© Simon Schöpf/Getty Images)](https://cn.bing.com/th?id=OHR.MontBlancMassif_EN-US3284638409_UHD.jpg)
 
 20241023 | [Madame Sherri Forest and the ruins of an old castle, New Hampshire (© yggdrasill/Shutterstock)](https://cn.bing.com/th?id=OHR.MadameSherriCastle_EN-US3066456106_UHD.jpg)
