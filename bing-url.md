@@ -1,3 +1,5 @@
+20241028 | [Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy)](https://cn.bing.com/th?id=OHR.PumpkinMist_EN-US3686565863_UHD.jpg)
+
 20241027 | [Polar bear mom and cub, Churchill, Manitoba, Canada (© Design Pics/plainpicture)](https://cn.bing.com/th?id=OHR.PolarBearHug_EN-US3461212514_UHD.jpg)
 
 20241026 | [Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy)](https://cn.bing.com/th?id=OHR.GhostForest_EN-US3389955484_UHD.jpg)
