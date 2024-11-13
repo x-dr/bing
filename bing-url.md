@@ -1,3 +1,5 @@
+20241113 | [California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)](https://cn.bing.com/th?id=OHR.KelpForest_EN-US4745308334_UHD.jpg)
+
 20241112 | [Double Arch seen through Cove Arch, Arches National Park, Utah (© Jeff Foott/Minden Pictures)](https://cn.bing.com/th?id=OHR.CoveArch_EN-US4653050772_UHD.jpg)
 
 20241111 | [Mural Wall, Korean War Veterans Memorial, Washington, DC (© Steve Tulley/Alamy)](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_UHD.jpg)
