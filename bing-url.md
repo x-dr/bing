@@ -1,3 +1,5 @@
+20241121 | [Lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)](https://cn.bing.com/th?id=OHR.LionCubs_EN-US4742616367_UHD.jpg)
+
 20241120 | [Giant land art painting 'Beyond Crisis' by Saype, Leysin, Switzerland (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)](https://cn.bing.com/th?id=OHR.BeyondSaype_EN-US4398054405_UHD.jpg)
 
 20241119 | [Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)](https://cn.bing.com/th?id=OHR.TasmansArch_EN-US4274981499_UHD.jpg)
