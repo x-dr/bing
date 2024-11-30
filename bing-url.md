@@ -1,3 +1,5 @@
+20241130 | [Kilchurn Castle reflected in Loch Awe, Argyll and Bute, Scotland (© Tom Mackie/plainpicture)](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-US6737063910_UHD.jpg)
+
 20241129 | [Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)](https://cn.bing.com/th?id=OHR.MtStMichel_EN-US6641012356_UHD.jpg)
 
 20241128 | [Wild turkeys, New York (© John Cancalosi/Alamy)](https://cn.bing.com/th?id=OHR.TomTurkeys_EN-US6212893518_UHD.jpg)
