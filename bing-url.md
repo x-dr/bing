@@ -1,3 +1,5 @@
+20241211 | [Tre Cime di Lavaredo, Sexten Dolomites, Italy (© Daniel Maran/Getty Images)](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_UHD.jpg)
+
 20241210 | [The Cornish Coast Path covered in snow, Land's End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_UHD.jpg)
 
 20241209 | [Guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_UHD.jpg)
