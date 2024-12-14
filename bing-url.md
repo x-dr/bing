@@ -1,3 +1,5 @@
+20241214 | [Northern hawk-owl, Canada (© pchoui/Getty Images)](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_UHD.jpg)
+
 20241213 | [Christmas market, St. Stephen's Basilica, Budapest, Hungary (© Calin Stan/Shutterstock)](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_UHD.jpg)
 
 20241212 | [Wild poinsettia (aka Christmas flower) (© David Hosking/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_UHD.jpg)
