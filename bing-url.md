@@ -1,3 +1,5 @@
+20241218 | [English National Ballet performing 'The Nutcracker' (© Caroline Holden/Alamy)](https://cn.bing.com/th?id=OHR.NutcrackerBallet_EN-US8927830113_UHD.jpg)
+
 20241217 | [Traditional red fishermen's cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_UHD.jpg)
 
 20241216 | [Salzburg, Austria (© bluejayphoto/Getty Images)](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_UHD.jpg)
