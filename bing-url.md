@@ -1,3 +1,5 @@
+20250122 | [Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)](https://cn.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_UHD.jpg)
+
 20250121 | [Eurasian red squirrel (© Edwin Giesbers/Minden Pictures)](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_UHD.jpg)
 
 20250120 | [Martin Luther King Jr. Memorial in Washington, DC (© Win McNamee/Getty Images)](https://cn.bing.com/th?id=OHR.KingMemorial_EN-US1319830882_UHD.jpg)
