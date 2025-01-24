@@ -1,3 +1,5 @@
+20250124 | [Strokkur geyser in Iceland (© John and Tina Reid/Getty Images)](https://cn.bing.com/th?id=OHR.IcelandGeyser_EN-US7648999118_UHD.jpg)
+
 20250123 | [Deer Valley at dusk, Park City, Utah (© Adventure_Photo/Getty Images)](https://cn.bing.com/th?id=OHR.DeerValley_EN-US2128104711_UHD.jpg)
 
 20250122 | [Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)](https://cn.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_UHD.jpg)
