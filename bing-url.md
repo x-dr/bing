@@ -1,3 +1,5 @@
+20250204 | [Golden Bridge, Bà Nà Hills, Da Nang, Vietnam (© Hien Phung Thu/Shutterstock)](https://cn.bing.com/th?id=OHR.GoldenBridge_EN-US3362533203_UHD.jpg)
+
 20250203 | [Ribblehead Viaduct and Ingleborough mountain, North Yorkshire, England (© AWL Images/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.RibbleheadViaduct_EN-US0244245382_UHD.jpg)
 
 20250202 | [Young alpine marmot (© Jonas Fichtner-Pflaum/Getty Images)](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_UHD.jpg)
