@@ -1,3 +1,5 @@
+20250209 | [Alstrom Point, Lake Powell, Utah (© T.M. Schultze/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.AlstromPoint_EN-US6746094430_UHD.jpg)
+
 20250208 | [Medieval towers in Mestia, Upper Svaneti, Georgia (© photoaliona/Getty Images)](https://cn.bing.com/th?id=OHR.SnowySvaneti_EN-US6546788330_UHD.jpg)
 
 20250207 | [Blue hour in Trondheim, Norway (© Jeanny Mueller/Getty Images)](https://cn.bing.com/th?id=OHR.BlueNorway_EN-US6457602567_UHD.jpg)
