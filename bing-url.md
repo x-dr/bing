@@ -1,3 +1,5 @@
+20250213 | [Lake Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)](https://cn.bing.com/th?id=OHR.LakeTyrrell_EN-US7326346900_UHD.jpg)
+
 20250212 | [Marine iguanas, Galápagos Islands, Ecuador (© helovi/Getty Images)](https://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_UHD.jpg)
 
 20250210 | [Art installation of umbrellas at Borough Market in London, England (© Malcolm P Chapman/Getty Images)](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_UHD.jpg)
