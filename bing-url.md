@@ -1,3 +1,5 @@
+20250214 | [Magellanic penguins in the Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://cn.bing.com/th?id=OHR.PenguinLove_EN-US7515315710_UHD.jpg)
+
 20250213 | [Lake Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)](https://cn.bing.com/th?id=OHR.LakeTyrrell_EN-US7326346900_UHD.jpg)
 
 20250212 | [Marine iguanas, Galápagos Islands, Ecuador (© helovi/Getty Images)](https://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_UHD.jpg)
