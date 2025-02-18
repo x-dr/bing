@@ -1,3 +1,5 @@
+20250218 | [Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)](https://cn.bing.com/th?id=OHR.BlueBelize_EN-US7787222240_UHD.jpg)
+
 20250217 | [The Washington Monument seen from the Lincoln Memorial, Washington, DC (© lucky-photographer/Alamy)](https://cn.bing.com/th?id=OHR.LincolnSunrise_EN-US7725604655_UHD.jpg)
 
 20250216 | [Humpback whale mother and calf, Tonga (© Chase Dekker/Minden Pictures)](https://cn.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_UHD.jpg)
