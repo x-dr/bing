@@ -1,3 +1,5 @@
+20250224 | [Group of giant cuttlefish in Spencer Gulf, off Whyalla, South Australia (© Gary Bell/Minden Pictures)](https://cn.bing.com/th?id=OHR.GiantCuttlefish_EN-US2276053377_UHD.jpg)
+
 20250223 | [Mount Fuji at sunrise, Lake Kawaguchi, Japan (© Twenty47studio/Getty Images)](https://cn.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_UHD.jpg)
 
 20250222 | [The Gateway Arch in St. Louis, Missouri (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.StLouisArch_EN-US1920417205_UHD.jpg)
