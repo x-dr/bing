@@ -1,3 +1,5 @@
+20250324 | [Desert elephant with calf feeding on tall grass, Namibia (© Christophe Courteau/Minden Pictures)](https://cn.bing.com/th?id=OHR.ElephantGrass_EN-US1398774650_UHD.jpg)
+
 20250323 | [Lightning and storm clouds at sunset near Bowman, Nebraska (© john finney photography/Getty Images)](https://cn.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_UHD.jpg)
 
 20250322 | [Water lilies at the surface of Cenote Nicte-Ha, Tulum, Mexico (© Franco Banfi/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.CenoteLilies_EN-US1076301699_UHD.jpg)
