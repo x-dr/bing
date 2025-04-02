@@ -1,3 +1,5 @@
+20250402 | [Sandstone formations in the badlands near Caineville, Utah (© Chris Moore/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.UtahBadlands_EN-US3082813561_UHD.jpg)
+
 20250401 | [Tree frog, Costa Rica (© Ondrej Prosicky/Shutterstock)](https://cn.bing.com/th?id=OHR.TicanFrog_EN-US3006346741_UHD.jpg)
 
 20250331 | [Ostuni at dusk, Apulia, Italy (© Feng Wei Photography/Getty Images)](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-US2964422003_UHD.jpg)
