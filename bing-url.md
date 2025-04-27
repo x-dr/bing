@@ -1,3 +1,5 @@
+20250427 | [Halema'uma'u Crater's lava lake, Kīlauea Caldera, Hawai'i Volcanoes National Park, Hawaii (© Stephen Matera/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.KilaueaCaldera_EN-US7764962675_UHD.jpg)
+
 20250426 | [Grove of redwoods in Redwood National and State Parks, California (© Bob Pool/Getty Images)](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-US3412092024_UHD.jpg)
 
 20250425 | [Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)](https://cn.bing.com/th?id=OHR.MagellanicPenguin_EN-US3332048594_UHD.jpg)
