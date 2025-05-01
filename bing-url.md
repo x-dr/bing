@@ -1,3 +1,5 @@
+20250501 | [Plumeria flowers, Hawaii (© Miranda Jans/Getty Images)](https://cn.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_UHD.jpg)
+
 20250430 | [Jazz saxophonist John Coltrane and band performing in 1961 in London, England (© Popperfoto/Getty Images)](https://cn.bing.com/th?id=OHR.ColtraneBand_EN-US3561448385_UHD.jpg)
 
 20250429 | [Formal garden at Château de Villandry, Loire Valley, France (© Mint Images/Getty Images)](https://cn.bing.com/th?id=OHR.GardensVillandry_EN-US3529015856_UHD.jpg)
