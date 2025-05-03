@@ -1,3 +1,5 @@
+20250503 | [The Milky Way framed by Double Arch in Arches National Park, Utah (© Adventure_Photo/Getty Images)](https://cn.bing.com/th?id=OHR.ArchesGalaxy_EN-US5690613383_UHD.jpg)
+
 20250502 | [Striated heron on a Victoria water lily, Pantanal, Brazil (© Gerald Corsi/Getty Images)](https://cn.bing.com/th?id=OHR.BrazilHeron_EN-US5602369723_UHD.jpg)
 
 20250501 | [Plumeria flowers, Hawaii (© Miranda Jans/Getty Images)](https://cn.bing.com/th?id=OHR.PinkPlumeria_EN-US3595771407_UHD.jpg)
