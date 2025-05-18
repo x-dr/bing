@@ -1,3 +1,5 @@
+20250518 | ['The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.DufyRoom_EN-US3759763345_UHD.jpg)
+
 20250517 | [A delta in the Venetian Lagoon, Italy (© Dimitri Weber/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.VeniceLagoon_EN-US3686079353_UHD.jpg)
 
 20250516 | [Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)](https://cn.bing.com/th?id=OHR.GreenMacaw_EN-US1646325635_UHD.jpg)
