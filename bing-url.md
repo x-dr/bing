@@ -1,3 +1,5 @@
+20250602 | [Skipper butterfly on a coneflower, Rockefeller State Park Preserve, New York (© Marianne A. Campolongo/Alamy)](https://cn.bing.com/th?id=OHR.EchinaceaButterfly_EN-US8404044892_UHD.jpg)
+
 20250601 | [Barrier reef off the island of Grande Terre in the French overseas territory of New Caledonia (© Karsten Wrobel/Getty Images)](https://cn.bing.com/th?id=OHR.GrandeTerreReef_EN-US8351815569_UHD.jpg)
 
 20250531 | [Knuthöjdsmossen, a nature reserve in Sweden (© Sven Halling/DEEPOL/plainpicture)](https://cn.bing.com/th?id=OHR.SwedenReserve_EN-US8234763267_UHD.jpg)
