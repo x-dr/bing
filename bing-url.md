@@ -1,3 +1,5 @@
+20250605 | [Bottle-cap mural made by Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.OlivaresMural_EN-US8824492734_UHD.jpg)
+
 20250604 | [The beach at Cala Luna, Sardinia, Italy (© guenterguni/Getty Images)](https://cn.bing.com/th?id=OHR.CalaLuna_EN-US8760708047_UHD.jpg)
 
 20250603 | [Bicycles on a bridge in Utrecht, Netherlands (© George Pachantouris/Getty Images)](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_EN-US8449213938_UHD.jpg)
