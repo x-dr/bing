@@ -1,3 +1,5 @@
+20250616 | [Sea turtle, Fernando de Noronha, Brazil (© João Vianna/Getty Images)](https://cn.bing.com/th?id=OHR.SeaTurtleBrazil_EN-US1789042400_UHD.jpg)
+
 20250615 | [Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)](https://cn.bing.com/th?id=OHR.RheaDad_EN-US1643943847_UHD.jpg)
 
 20250614 | [Flag display at the US Capitol, Washington, DC (© kmiragaya/Adobe Stock)](https://cn.bing.com/th?id=OHR.FlagCapitolDC_EN-US1553861171_UHD.jpg)
