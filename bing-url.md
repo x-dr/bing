@@ -1,3 +1,5 @@
+20250719 | [Luna moth resting on cedar elm, New Braunfels, Texas, USA (© Rolf Nussbaumer/Nature Picture Library)](https://cn.bing.com/th?id=OHR.MothWeek_EN-US5360572836_UHD.jpg)
+
 20250718 | [Beach at sunrise, Gulf Islands National Seashore, Florida (© Tim Fitzharris/Minden Pictures)](https://cn.bing.com/th?id=OHR.FloridaSeashore_EN-US9038929616_UHD.jpg)
 
 20250717 | [Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)](https://cn.bing.com/th?id=OHR.FranceLavender_EN-US5224253118_UHD.jpg)
