@@ -1,3 +1,5 @@
+20250723 | [Vatican City with St. Peter's Basilica (© RudyBalasko/Getty Images)](https://cn.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_UHD.jpg)
+
 20250722 | [Sunset over Badlands National Park, South Dakota (© Petr Bednarik/Danita Delimont/Alamy)](https://cn.bing.com/th?id=OHR.BadlandsSunset_EN-US5821746223_UHD.jpg)
 
 20250721 | [Staghorn coral off the island of Bonaire, Caribbean Netherlands (© blue-sea.cz/Shutterstock)](https://cn.bing.com/th?id=OHR.AcroporaReef_EN-US5567789372_UHD.jpg)
