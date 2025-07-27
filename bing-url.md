@@ -1,3 +1,5 @@
+20250727 | [School of blackfin barracuda, Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt (© Alex Mustard/Nature Picture Library)](https://cn.bing.com/th?id=OHR.BlackfinBarracuda_EN-US1227116811_UHD.jpg)
+
 20250726 | [Mangrove trees at twilight, Walakiri Beach, island of Sumba, Indonesia (© Boonchet Ch./Getty Images)](https://cn.bing.com/th?id=OHR.MangroveTwilight_EN-US0646432423_UHD.jpg)
 
 20250725 | [Aerial view of colorful houses, Las Palmas de Gran Canaria, Spain (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.LasPalmas_EN-US0568727017_UHD.jpg)
