@@ -1,3 +1,5 @@
+20250805 | [Tide pools in La Jolla, California (© Andrew Shoemaker/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.CaliforniaTidepool_EN-US9089576317_UHD.jpg)
+
 20250804 | [Great gray owls in their nest, Finland (© imageBROKER.com/Alamy)](https://cn.bing.com/th?id=OHR.LaplandOwl_EN-US8965493818_UHD.jpg)
 
 20250803 | [Sunflowers in a field in summer (© Arsgera/Shutterstock)](https://cn.bing.com/th?id=OHR.HappySunflower_EN-US8791544241_UHD.jpg)
