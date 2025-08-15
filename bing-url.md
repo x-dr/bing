@@ -1,3 +1,5 @@
+20250815 | [Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.SpottedEagleRay_EN-US9227600044_UHD.jpg)
+
 20250814 | [Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)](https://cn.bing.com/th?id=OHR.PizNairPeak_EN-US9097547756_UHD.jpg)
 
 20250813 | [A man rappels off Corona Arch near Moab, Utah (© Grant Ordelheide/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.CoronaArch_EN-US8928406175_UHD.jpg)
