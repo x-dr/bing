@@ -1,3 +1,5 @@
+20250825 | [Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)](https://cn.bing.com/th?id=OHR.YellowstoneRiver_EN-US3380364726_UHD.jpg)
+
 20250824 | [European fallow deer, England (© Enrique Aguirre Aves/Getty Images)](https://cn.bing.com/th?id=OHR.CervusDama_EN-US3217647015_UHD.jpg)
 
 20250823 | [St. Barbara's Cathedral, Kutná Hora, Czechia (© Castka/Getty Images)](https://cn.bing.com/th?id=OHR.SaintBarbaras_EN-US3076115197_UHD.jpg)
