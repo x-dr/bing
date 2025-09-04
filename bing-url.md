@@ -1,3 +1,5 @@
+20250904 | [Grizzly bears wrestling, Katmai National Park and Preserve, Alaska (© Cavan Images/Adobe Stock)](https://cn.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_UHD.jpg)
+
 20250903 | [Boundary Waters Canoe Area Wilderness, Minnesota (© s.tomas/Shutterstock)](https://cn.bing.com/th?id=OHR.MinnesotaWaters_EN-US4282198656_UHD.jpg)
 
 20250902 | [Camel thorn trees, Deadvlei, Namib-Naukluft Park, Namibia (© Inge Johnsson/Alamy)](https://cn.bing.com/th?id=OHR.DeadvleiTrees_EN-US4233800313_UHD.jpg)
