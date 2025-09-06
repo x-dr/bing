@@ -1,3 +1,5 @@
+20250906 | [Rufous hummingbird, Golden Gate Park, San Francisco, California (© jeremyborkat/Getty Images)](https://cn.bing.com/th?id=OHR.RufousHummer_EN-US7346003108_UHD.jpg)
+
 20250905 | [Pacific Park at Santa Monica State Beach, California (© EXTREME-PHOTOGRAPHER/Getty Images)](https://cn.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_UHD.jpg)
 
 20250904 | [Grizzly bears wrestling, Katmai National Park and Preserve, Alaska (© Cavan Images/Adobe Stock)](https://cn.bing.com/th?id=OHR.WrestlingBears_EN-US4338158114_UHD.jpg)
