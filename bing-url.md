@@ -1,3 +1,5 @@
+20250909 | [A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)](https://cn.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_UHD.jpg)
+
 20250908 | [Library@orchard, Singapore (© Darwin Fan/Getty Images)](https://cn.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_UHD.jpg)
 
 20250907 | [Gdańsk on the banks of the Motława, Poland (© Oscar Dominguez/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_UHD.jpg)
