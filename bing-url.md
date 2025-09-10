@@ -1,3 +1,5 @@
+20250910 | [Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)](https://cn.bing.com/th?id=OHR.YorkshireHay_EN-US8523120193_UHD.jpg)
+
 20250909 | [A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)](https://cn.bing.com/th?id=OHR.SwissSquirrel_EN-US8185093853_UHD.jpg)
 
 20250908 | [Library@orchard, Singapore (© Darwin Fan/Getty Images)](https://cn.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_UHD.jpg)
