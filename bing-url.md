@@ -1,3 +1,5 @@
+20250917 | [Young bull moose in Denali National Park, Alaska (© Grant Ordelheide/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.YoungMoose_EN-US2991221135_UHD.jpg)
+
 20250916 | [Nighttime view of the Gulf Coast states from 225 miles above Earth (© Stocktrek Images/Getty Images)](https://cn.bing.com/th?id=OHR.OzoneEarth_EN-US9728527733_UHD.jpg)
 
 20250915 | [Latino Cultural Center designed by Ricardo Legorreta, Dallas, Texas (© Ken Hurst/Alamy)](https://cn.bing.com/th?id=OHR.DallasLegorreta_EN-US9050675226_UHD.jpg)
