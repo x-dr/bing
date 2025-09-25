@@ -1,3 +1,5 @@
+20250925 | [Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)](https://cn.bing.com/th?id=OHR.FortChittorgarh_EN-US9184486139_UHD.jpg)
+
 20250924 | [Devils Tower National Monument, Wyoming (© Laura Hedien/Getty Images)](https://cn.bing.com/th?id=OHR.BearLodge_EN-US9061134971_UHD.jpg)
 
 20250923 | [Keel-billed toucan in Costa Rica (© Juan Carlos Vindas/Getty Images)](https://cn.bing.com/th?id=OHR.ToucanForest_EN-US8319635845_UHD.jpg)
