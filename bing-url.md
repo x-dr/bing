@@ -1,3 +1,5 @@
+20251005 | [Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_UHD.jpg)
+
 20251004 | [ISS main solar arrays seen from SpaceX Crew Dragon Endeavour (© NASA)](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_UHD.jpg)
 
 20251003 | [Heather growing in Glen Brittle, Isle of Skye, Scotland (© Adam Mowery/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.SkyeHeather_EN-US9221942108_UHD.jpg)
