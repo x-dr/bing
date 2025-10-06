@@ -1,3 +1,5 @@
+20251006 | [Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)](https://cn.bing.com/th?id=OHR.AnshunBridge_EN-US0059795497_UHD.jpg)
+
 20251005 | [Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)](https://cn.bing.com/th?id=OHR.TeacherOwl_EN-US9991815804_UHD.jpg)
 
 20251004 | [ISS main solar arrays seen from SpaceX Crew Dragon Endeavour (© NASA)](https://cn.bing.com/th?id=OHR.DragonEndeavour_EN-US9321246369_UHD.jpg)
