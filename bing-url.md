@@ -1,3 +1,5 @@
+20251010 | [Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)](https://cn.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_UHD.jpg)
+
 20251009 | [The Pillars of Creation viewed by the James Webb Space Telescope (© NASA)](https://cn.bing.com/th?id=OHR.WebbPillars_EN-US0251661895_UHD.jpg)
 
 20251008 | [Day octopus in the waters off Maui, Hawaii (© Dave Fleetham/plainpicture)](https://cn.bing.com/th?id=OHR.OctopusCyanea_EN-US0194861123_UHD.jpg)
