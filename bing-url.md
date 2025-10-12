@@ -1,3 +1,5 @@
+20251012 | [Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_UHD.jpg)
+
 20251011 | [Wood duck hen (© ps50ace/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg)
 
 20251010 | [Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)](https://cn.bing.com/th?id=OHR.MonurikiFiji_EN-US0326449622_UHD.jpg)
