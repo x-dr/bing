@@ -1,3 +1,5 @@
+20251013 | [House on Fire Ruin in Mule Canyon, Cedar Mesa, Utah (© Pete Lomchid/Getty Images)](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_UHD.jpg)
+
 20251012 | [Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_UHD.jpg)
 
 20251011 | [Wood duck hen (© ps50ace/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.WoodDuckHen_EN-US0382439406_UHD.jpg)
