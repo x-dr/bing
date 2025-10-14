@@ -1,3 +1,5 @@
+20251014 | [Village of Oia, Santorini, Greece (© f9photos/Getty Images)](https://cn.bing.com/th?id=OHR.OiaSantorini_EN-US0585833457_UHD.jpg)
+
 20251013 | [House on Fire Ruin in Mule Canyon, Cedar Mesa, Utah (© Pete Lomchid/Getty Images)](https://cn.bing.com/th?id=OHR.MuleCanyon_EN-US0527899523_UHD.jpg)
 
 20251012 | [Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)](https://cn.bing.com/th?id=OHR.SaranacLake_EN-US0445660450_UHD.jpg)
