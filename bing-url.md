@@ -1,3 +1,5 @@
+20251019 | [Apples ready for harvest, Minnesota (© Tammi Mild/Getty Images)](https://cn.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_UHD.jpg)
+
 20251018 | [Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)](https://cn.bing.com/th?id=OHR.SilburyHill_EN-US2485144120_UHD.jpg)
 
 20251017 | [Rock River Falls, Upper Peninsula, Michigan (© Matt Anderson Photography/Getty Images)](https://cn.bing.com/th?id=OHR.RockRiverFalls_EN-US2428797661_UHD.jpg)
