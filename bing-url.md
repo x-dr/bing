@@ -1,3 +1,5 @@
+20251021 | [A diya at the Golden Temple during Diwali, Amritsar, India (© EyeEm Mobile GmbH/Getty Images)](https://cn.bing.com/th?id=OHR.DiyaDiwali_EN-US3108369974_UHD.jpg)
+
 20251020 | [A Hoffmann's two-toed sloth in Ecuador (© Murray Cooper/Minden Pictures)](https://cn.bing.com/th?id=OHR.HoffmansSloth_EN-US3030106938_UHD.jpg)
 
 20251019 | [Apples ready for harvest, Minnesota (© Tammi Mild/Getty Images)](https://cn.bing.com/th?id=OHR.AppleHarvest_EN-US2977882687_UHD.jpg)
