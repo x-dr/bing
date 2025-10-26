@@ -1,3 +1,5 @@
+20251026 | [Pumpkin farm in North Carolina (© Matthew H Irvin/Getty Images)](https://cn.bing.com/th?id=OHR.PumpkinFarm_EN-US3773448576_UHD.jpg)
+
 20251025 | [Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_EN-US3685817058_UHD.jpg)
 
 20251024 | [Night view of the RMS Queen Mary, Long Beach, California (© Kit Leong/Shutterstock)](https://cn.bing.com/th?id=OHR.QueenMary_EN-US3331250680_UHD.jpg)
