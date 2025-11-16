@@ -1,3 +1,5 @@
+20251116 | [A traboule in Lyon, France (© TPopova/Getty Images)](https://cn.bing.com/th?id=OHR.LyonTraboules_EN-US9432784340_UHD.jpg)
+
 20251115 | [Irohazaka Road in fall, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_EN-US9137140715_UHD.jpg)
 
 20251114 | [Mother manatee and calf, Crystal River, Florida (© Gregory Sweeney/Getty Images)](https://cn.bing.com/th?id=OHR.ManateeBaby_EN-US5594953777_UHD.jpg)
