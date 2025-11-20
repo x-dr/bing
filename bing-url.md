@@ -1,3 +1,5 @@
+20251120 | [Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)](https://cn.bing.com/th?id=OHR.SaypeGeneva_EN-US6121087903_UHD.jpg)
+
 20251119 | [Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)](https://cn.bing.com/th?id=OHR.BudapestParliament_EN-US5929195878_UHD.jpg)
 
 20251118 | [Male hooded merganser, Oregon (© Eric Vogt/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.AutumnMerganser_EN-US5860535351_UHD.jpg)
