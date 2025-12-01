@@ -1,3 +1,5 @@
+20251201 | [Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)](https://cn.bing.com/th?id=OHR.AntarcticArch_EN-US6560308300_UHD.jpg)
+
 20251130 | [Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)](https://cn.bing.com/th?id=OHR.LeipzigMarket_EN-US6493622236_UHD.jpg)
 
 20251129 | [Red deer stag in De Hoge Veluwe National Park, Netherlands (© CreativeNature_nl/Getty Images)](https://cn.bing.com/th?id=OHR.DeerVeluwe_EN-US6795108723_UHD.jpg)
