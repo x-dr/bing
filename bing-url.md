@@ -1,3 +1,5 @@
+20251213 | [Merced River, Yosemite National Park, California (© Ron and Patty Thomas/Getty Images)](https://cn.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_UHD.jpg)
+
 20251212 | [Spotted poinsettia (© DigiPub/Getty Images)](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_UHD.jpg)
 
 20251211 | [Summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)](https://cn.bing.com/th?id=OHR.EverestGlow_EN-US6131667612_UHD.jpg)
