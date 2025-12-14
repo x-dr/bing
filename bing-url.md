@@ -1,3 +1,5 @@
+20251214 | [Tufted titmouse perched on pine boughs, Massachusetts (© Tim Laman/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_UHD.jpg)
+
 20251213 | [Merced River, Yosemite National Park, California (© Ron and Patty Thomas/Getty Images)](https://cn.bing.com/th?id=OHR.YosemiteWinter_EN-US4786605896_UHD.jpg)
 
 20251212 | [Spotted poinsettia (© DigiPub/Getty Images)](https://cn.bing.com/th?id=OHR.SpeckledPoinsettia_EN-US4098165068_UHD.jpg)
