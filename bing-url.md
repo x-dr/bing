@@ -1,3 +1,5 @@
+20251216 | [Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)](https://cn.bing.com/th?id=OHR.ChristmasGnomes_EN-US5094302697_UHD.jpg)
+
 20251215 | [Lights on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)](https://cn.bing.com/th?id=OHR.AmsterdamLights_EN-US4980559514_UHD.jpg)
 
 20251214 | [Tufted titmouse perched on pine boughs, Massachusetts (© Tim Laman/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.TuftedTitmouse_EN-US4835376471_UHD.jpg)
