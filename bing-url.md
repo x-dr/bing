@@ -1,3 +1,5 @@
+20260106 | [Nuuk, Greenland (© nevereverro/Getty Images)](https://cn.bing.com/th?id=OHR.NuukGreenland_EN-US6879869782_UHD.jpg)
+
 20260105 | [A herd of impalas, Londolozi Game Reserve, South Africa (© Mint Images/Getty Images)](https://cn.bing.com/th?id=OHR.ImpalaRooibok_EN-US6797453661_UHD.jpg)
 
 20260104 | [Kings Mountain, Chugach Mountains, Alaska (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.KingMountain_EN-US6730743729_UHD.jpg)
