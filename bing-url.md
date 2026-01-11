@@ -1,3 +1,5 @@
+20260111 | [Blue walls of Chefchaouen, Morocco (© AnetteAndersen/Getty Images)](https://cn.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_UHD.jpg)
+
 20260110 | [The Matterhorn reflected in Lake Stellisee at sunrise, Zermatt, Switzerland (© Andy Trowbridge/naturepl.com)](https://cn.bing.com/th?id=OHR.MatterhornSunrise_EN-US9978097106_UHD.jpg)
 
 20260109 | [Giant redwood trees in Muir Woods National Monument, California (© photo by canderson/Getty Images)](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_EN-US9831416144_UHD.jpg)
