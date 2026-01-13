@@ -1,3 +1,5 @@
+20260113 | [Vale of Clwyd, Wales (© Valerie Blencowe/Getty Images)](https://cn.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_UHD.jpg)
+
 20260112 | [Eurasian otter and pup, Estonia (© Sven Zacek/naturepl.com)](https://cn.bing.com/th?id=OHR.SnowOtters_EN-US0138589680_UHD.jpg)
 
 20260111 | [Blue walls of Chefchaouen, Morocco (© AnetteAndersen/Getty Images)](https://cn.bing.com/th?id=OHR.BlueMorocco_EN-US0026059455_UHD.jpg)
