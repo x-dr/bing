@@ -1,3 +1,5 @@
+20260115 | [The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)](https://cn.bing.com/th?id=OHR.ReineSunrise_EN-US0323810872_UHD.jpg)
+
 20260114 | [The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)](https://cn.bing.com/th?id=OHR.PalamidiFortress_EN-US0244863129_UHD.jpg)
 
 20260113 | [Vale of Clwyd, Wales (© Valerie Blencowe/Getty Images)](https://cn.bing.com/th?id=OHR.WalesWinter_EN-US0191348069_UHD.jpg)
