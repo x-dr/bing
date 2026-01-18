@@ -1,3 +1,5 @@
+20260118 | [White Sands National Park, New Mexico (© Francesco Carucci/Getty Images)](https://cn.bing.com/th?id=OHR.WhiteSandsNM_EN-US0565482616_UHD.jpg)
+
 20260117 | [Basilica of San Francesco di Paola, Naples, Italy (© javarman3/Getty Images)](https://cn.bing.com/th?id=OHR.NaplesBasilica_EN-US0483177548_UHD.jpg)
 
 20260116 | [Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)](https://cn.bing.com/th?id=OHR.EtoshaLeopard_EN-US0412326524_UHD.jpg)
