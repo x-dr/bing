@@ -1,3 +1,5 @@
+20260129 | [The eight-story open atrium of Milwaukee City Hall, Wisconsin (© lavin photography/Getty Images)](https://cn.bing.com/th?id=OHR.MilwaukeeHall_EN-US9990591477_UHD.jpg)
+
 20260128 | [Whanganui National Park, Retaruke, New Zealand (© Matthew Micah Wright/Getty Images)](https://cn.bing.com/th?id=OHR.WhanganuiPark_EN-US9741312204_UHD.jpg)
 
 20260127 | [Dalmatian pelicans, Lake Kerkini, Greece (© Guy Edwardes/naturepl.com)](https://cn.bing.com/th?id=OHR.DalmationPelicans_EN-US9458474756_UHD.jpg)
