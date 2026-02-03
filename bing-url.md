@@ -1,3 +1,5 @@
+20260203 | [Emerald Bay and Fannette Island, Lake Tahoe, California (© Bill Stevenson/Cavan Images)](https://cn.bing.com/th?id=OHR.FanetteIsland_EN-US0236094374_UHD.jpg)
+
 20260202 | [Alpine marmots, Hohe Tauern National Park, Austria (© Raimund Linke/Getty Images)](https://cn.bing.com/th?id=OHR.AlpineMarmots_EN-US0200342638_UHD.jpg)
 
 20260201 | [US Army nurses arrive in Greenock, Scotland, 1944 (© Stocktrek Images, Inc/Alamy)](https://cn.bing.com/th?id=OHR.ArmyNurses_EN-US0165759491_UHD.jpg)
