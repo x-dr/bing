@@ -1,3 +1,5 @@
+20260216 | [Lincoln Memorial, Washington, DC (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.PresidentsDay_EN-US6598155144_UHD.jpg)
+
 20260215 | [Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_EN-US6328970690_UHD.jpg)
 
 20260214 | [Bleeding hearts (© Dorene Hookey/Cavan Images)](https://cn.bing.com/th?id=OHR.ValentineHearts_EN-US6208359150_UHD.jpg)
