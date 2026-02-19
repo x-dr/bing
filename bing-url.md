@@ -1,3 +1,5 @@
+20260219 | [The Dragon's Eye rock formation at Uttakleiv Beach, Norway (© reisegraf/Getty Images)](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_UHD.jpg)
+
 20260218 | [Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg)
 
 20260217 | [Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)](https://cn.bing.com/th?id=OHR.NewYearLantern_EN-US6665128229_UHD.jpg)
