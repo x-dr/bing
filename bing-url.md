@@ -1,3 +1,5 @@
+20260220 | [Horsetail Fall in Yosemite National Park, California (© Jorge Villalba/Getty Images)](https://cn.bing.com/th?id=OHR.AdamsFirefall_EN-US2580399078_UHD.jpg)
+
 20260219 | [The Dragon's Eye rock formation at Uttakleiv Beach, Norway (© reisegraf/Getty Images)](https://cn.bing.com/th?id=OHR.DragonsEyeRock_EN-US6826796617_UHD.jpg)
 
 20260218 | [Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_EN-US6767229079_UHD.jpg)
