@@ -1,3 +1,5 @@
+20260224 | [Water lilies at Grand Cenote, Tulum, Mexico (© Christian Vizl/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_UHD.jpg)
+
 20260223 | [Great white egret, Upper Bavaria, Germany (© Konrad Wothe/naturepl.com)](https://cn.bing.com/th?id=OHR.BavariaEgret_EN-US2697995103_UHD.jpg)
 
 20260222 | [The hill of Mam Tor, Derbyshire, England (© john finney photography/Getty Images)](https://cn.bing.com/th?id=OHR.MamTorSunrise_EN-US2655534073_UHD.jpg)
