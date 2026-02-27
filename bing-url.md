@@ -1,3 +1,5 @@
+20260227 | [Polar bear cub walking across pack ice, Arctic National Wildlife Refuge, Alaska (© Steven Kazlowski/naturepl.com)](https://cn.bing.com/th?id=OHR.ArcitcCub_EN-US2529097123_UHD.jpg)
+
 20260226 | [Grand Canyon and the Colorado River, Arizona (© Matt Anderson Photography/Getty Images)](https://cn.bing.com/th?id=OHR.GrandSunset_EN-US2473517741_UHD.jpg)
 
 20260225 | [Ice cave in the Mendenhall Glacier, Alaska (© Designpics/Adobe Stock)](https://cn.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_UHD.jpg)
