@@ -1,3 +1,5 @@
+20260328 | [African buffalo, Ngorongoro Crater, Tanzania (© jesuss8/500px/Getty Images)](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_UHD.jpg)
+
 20260327 | [Radio City Music Hall in New York City (© Clarence Holmes Photography/Alamy)](https://cn.bing.com/th?id=OHR.RadioCityHall_EN-US6218301556_UHD.jpg)
 
 20260326 | [Logan Creek Suspension Bridge, West Coast Trail, Canada (© Tandem Stock/Adobe Stock)](https://cn.bing.com/th?id=OHR.LoganCreek_EN-US6075548781_UHD.jpg)
