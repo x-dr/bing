@@ -1,3 +1,5 @@
+20260329 | [Peggy's Point Lighthouse, Atlantic Coast, Nova Scotia, Canada (© Prashanth Bala/Shutterstock)](https://cn.bing.com/th?id=OHR.PeggysLighthouse_EN-US6365734559_UHD.jpg)
+
 20260328 | [African buffalo, Ngorongoro Crater, Tanzania (© jesuss8/500px/Getty Images)](https://cn.bing.com/th?id=OHR.CapeBuffalo_EN-US6304011521_UHD.jpg)
 
 20260327 | [Radio City Music Hall in New York City (© Clarence Holmes Photography/Alamy)](https://cn.bing.com/th?id=OHR.RadioCityHall_EN-US6218301556_UHD.jpg)
