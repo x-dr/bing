@@ -1,3 +1,5 @@
+20260404 | [Black grouse males facing off on a lekking site, Estonia (© Sven Zacek/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GrouseGuff_EN-US4212457538_UHD.jpg)
+
 20260403 | [Armbrug bridge, Amsterdam, Netherlands (© Alexander Spatari/Getty Images)](https://cn.bing.com/th?id=OHR.ArmbrugBridge_EN-US3302230248_UHD.jpg)
 
 20260402 | [Wildflower bloom, Central Valley, California (© Jeff Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_UHD.jpg)
