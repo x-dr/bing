@@ -1,3 +1,5 @@
+20260513 | [Arch and Milky Way, Alabama Hills, Sierra Nevada, California (© Tim Fitzharris/Minden Pictures)](https://cn.bing.com/th?id=OHR.AlabamaHills_EN-US1154221052_UHD.jpg)
+
 20260512 | [Atlantic puffins, Wales (© FLPA/Alamy)](https://cn.bing.com/th?id=OHR.Fratercula_EN-US1020898539_UHD.jpg)
 
 20260511 | [Great Barrier Reef from above, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)](https://cn.bing.com/th?id=OHR.QueenslandReef_EN-US0977236952_UHD.jpg)
