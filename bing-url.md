@@ -1,3 +1,5 @@
+20260527 | [Sea otter, Kachemak Bay, Homer, Alaska (© roclwyr/Getty Images)](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_UHD.jpg)
+
 20260526 | [Lupine flowers in bloom, Northern California (© Jeffrey Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_UHD.jpg)
 
 20260525 | [Memorial Amphitheater at Arlington National Cemetery, Arlington, Virginia (© idesignimages/Getty Images)](https://cn.bing.com/th?id=OHR.ArlingtonAmphitheater_EN-US0872772906_UHD.jpg)
