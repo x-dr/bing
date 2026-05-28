@@ -1,3 +1,5 @@
+20260528 | [Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)](https://cn.bing.com/th?id=OHR.HwaesongFortress_EN-US1012626869_UHD.jpg)
+
 20260527 | [Sea otter, Kachemak Bay, Homer, Alaska (© roclwyr/Getty Images)](https://cn.bing.com/th?id=OHR.OtterDay_EN-US0973120905_UHD.jpg)
 
 20260526 | [Lupine flowers in bloom, Northern California (© Jeffrey Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LupineBloom_EN-US0920778137_UHD.jpg)
