@@ -1,3 +1,5 @@
+20260617 | [Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland (© Sandro Bisaro/Getty Images)](https://cn.bing.com/th?id=OHR.TremolaRoad_EN-US6212254886_UHD.jpg)
+
 20260616 | [Hawksbill sea turtle pair near Seven Mile Beach, Grand Cayman, Cayman Islands (© Alex Mustard/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SevenMileTurtle_EN-US6164934763_UHD.jpg)
 
 20260615 | [Great Smoky Mountains National Park, Tennessee (© Mint Images/Getty Images)](https://cn.bing.com/th?id=OHR.ParkEstd_EN-US6114949122_UHD.jpg)
