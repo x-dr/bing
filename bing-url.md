@@ -1,3 +1,5 @@
+20260624 | [Butterfly pollinating on yellow flower (© lzh/Getty Images)](https://cn.bing.com/th?id=OHR.BFPollin_EN-US6519187095_UHD.jpg)
+
 20260623 | [Mount Fuji on Honshu Island, Japan (© phutthiseth thongtae/Getty Images)](https://cn.bing.com/th?id=OHR.Fujisan_EN-US6479372200_UHD.jpg)
 
 20260622 | [Quinault rainforest, Olympic National Park, Washington state (© Chris Moore/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_UHD.jpg)
