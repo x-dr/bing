@@ -1,3 +1,5 @@
+20260710 | [Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)](https://cn.bing.com/th?id=OHR.VictoriaBeach_EN-US7607379912_UHD.jpg)
+
 20260709 | [Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)](https://cn.bing.com/th?id=OHR.SapaVietnam_EN-US4008171614_UHD.jpg)
 
 20260708 | [Sunrise at Lake Atitlán, Guatemala (© shayes17/Getty Images)](https://cn.bing.com/th?id=OHR.LakeAtitlan_EN-US3747076006_UHD.jpg)
