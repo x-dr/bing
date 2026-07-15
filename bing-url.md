@@ -1,3 +1,5 @@
+20260715 | [Marie Lake, John Muir Wilderness near Bishop, California (© Steve Dunleavy/Getty Images)](https://cn.bing.com/th?id=OHR.MarieLake_EN-US0365186943_UHD.jpg)
+
 20260714 | [Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)](https://cn.bing.com/th?id=OHR.LemonShark_EN-US9828936448_UHD.jpg)
 
 20260713 | [Antelope Canyon on the Navajo Nation, east of Page, Arizona (© Mark Skalny/Getty Images)](https://cn.bing.com/th?id=OHR.NavajoSandstone_EN-US9496264383_UHD.jpg)
