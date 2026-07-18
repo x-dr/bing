@@ -1,3 +1,5 @@
+20260718 | [Devil's Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)](https://cn.bing.com/th?id=OHR.DevilsBridge_EN-US3505962815_UHD.jpg)
+
 20260717 | [Sunbeds on the beach at Vai, Crete, Greece (© borchee/Getty Images)](https://cn.bing.com/th?id=OHR.VaiUmbrellas_EN-US8985051242_UHD.jpg)
 
 20260716 | [Navy Pier, Chicago, Illinois (© Christopher.F Photography/Getty Images)](https://cn.bing.com/th?id=OHR.NavyPier_EN-US1069960047_UHD.jpg)
