@@ -1,3 +1,5 @@
+20260811 | [Colorful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)](https://cn.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_UHD.jpg)
+
 20260810 | [Joshua Tree National Park, California (© JJ Landscapes/Getty Images)](https://cn.bing.com/th?id=OHR.SandPath_EN-US3759872156_UHD.jpg)
 
 20260809 | [Jean-Marie Tjibaou Cultural Centre, New Caledonia (© Fabien Astre/Alamy)](https://cn.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_UHD.jpg)
