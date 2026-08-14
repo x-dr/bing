@@ -1,3 +1,5 @@
+20260814 | [Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_EN-US5004733603_UHD.jpg)
+
 20260813 | [Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.PerseidasTenerife_EN-US4798593153_UHD.jpg)
 
 20260812 | [A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)](https://cn.bing.com/th?id=OHR.ElephantDay_EN-US4280370948_UHD.jpg)
