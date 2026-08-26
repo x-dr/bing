@@ -1,3 +1,5 @@
+20260826 | [Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)](https://cn.bing.com/th?id=OHR.AurorasIceland_EN-US3293282785_UHD.jpg)
+
 20260825 | [Sunrise in Redwood National and State Parks, California (© HadelProductions/Getty Images)](https://cn.bing.com/th?id=OHR.RedwoodPark_EN-US3199427613_UHD.jpg)
 
 20260824 | [Brooklyn Bridge, New York City (© shayes17/Getty Images)](https://cn.bing.com/th?id=OHR.BKBridge_EN-US2923468858_UHD.jpg)
