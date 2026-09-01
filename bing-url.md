@@ -1,3 +1,5 @@
+20260901 | [Horsehair parachute fungus, Belarus (© Máté/Nature Picture Library)](https://cn.bing.com/th?id=OHR.HorseHairShroom_EN-US3885857486_UHD.jpg)
+
 20260831 | [Building detail of Registan Square, Samarkand, Uzbekistan (© Piero M. Bianchi/Getty Images)](https://cn.bing.com/th?id=OHR.SamarkandCeiling_EN-US3761829748_UHD.jpg)
 
 20260830 | [Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)](https://cn.bing.com/th?id=OHR.YellowShark_EN-US3678567058_UHD.jpg)
