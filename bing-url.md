@@ -1,3 +1,5 @@
+20261002 | [Chattooga River in the Appalachian Mountains, North Carolina (© mtilghma/Getty Images)](https://cn.bing.com/th?id=OHR.ChattoogaRiver_EN-US5042787453_UHD.jpg)
+
 20261001 | [Sunset from Olmsted Point, Yosemite National Park, California, USA (© Robb Hirsch/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.OlmstedPoint_EN-US0964858045_UHD.jpg)
 
 20260930 | [Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)](https://cn.bing.com/th?id=OHR.BeardReedling_EN-US0124350202_UHD.jpg)
