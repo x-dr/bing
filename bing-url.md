@@ -1,3 +1,5 @@
+20261007 | [Moss-covered rocks in Puzzlewood, Forest of Dean, Gloucestershire, England (© Fulcanelli_AOS/Getty Images)](https://cn.bing.com/th?id=OHR.ForestofDean_EN-US7262962048_UHD.jpg)
+
 20261006 | [Danxia landform, Zhangye National Geopark, Gansu, China (© Weiquan Lin/Getty Images)](https://cn.bing.com/th?id=OHR.DanxiaLandform_EN-US5459628079_UHD.jpg)
 
 20261005 | [Adélie penguins, Antarctica (© Otto Plantema/Minden Pictures)](https://cn.bing.com/th?id=OHR.AdelieTeacher_EN-US5343194378_UHD.jpg)
