@@ -1,3 +1,5 @@
+20261011 | [Glade Creek Grist Mill, Babcock State Park, West Virginia (© dszc/Getty Images)](https://cn.bing.com/th?id=OHR.BabcockSP_EN-US6068931791_UHD.jpg)
+
 20261010 | [Double-crested cormorants over Monterey Bay, California (© Hiroya Minakuchi/Minden Pictures)](https://cn.bing.com/th?id=OHR.CormorantsFlight_EN-US5972403355_UHD.jpg)
 
 20261009 | [View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)](https://cn.bing.com/th?id=OHR.IlesSanguinaires_EN-US5801644173_UHD.jpg)
