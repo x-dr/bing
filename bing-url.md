@@ -1,3 +1,5 @@
+20261023 | [Two gray wolves, Yellowstone National Park, Wyoming (© John Morrison/Getty Images)](https://cn.bing.com/th?id=OHR.YellowstoneWolves_EN-US7105521535_UHD.jpg)
+
 20261022 | [Autumn in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)](https://cn.bing.com/th?id=OHR.NaejangsanNP_EN-US7010419904_UHD.jpg)
 
 20261021 | [Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)](https://cn.bing.com/th?id=OHR.VietnamBridge_EN-US6907946681_UHD.jpg)
